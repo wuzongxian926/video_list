@@ -6,7 +6,11 @@
 
 日期|主题
 ----|----
-|2016/5/05|[!](http://www.acfun.tv/v/ac)
+|2016/5/12|[!](http://www.acfun.tv/v/ac)
+|2016/5/11|[!](http://www.acfun.tv/v/ac)
+|2016/5/10|[!](http://www.acfun.tv/v/ac)
+|2016/5/09|[!](http://www.acfun.tv/v/ac)
+|2016/5/05|[別再讓他們孤單了！宅男電視聯誼會！](http://www.acfun.tv/v/ac2720532)
 |2016/5/04|[史上最催淚！小明星與媽媽的真情告白!](http://www.acfun.tv/v/ac2718119)
 |2016/5/03|[歌手最殘酷的一夜！顏值VS歌唱實力調查局!](http://www.acfun.tv/v/ac2716131)
 |2016/5/02|[他們為搶限量不擇手段？！明星私藏寶物大公開!](http://www.acfun.tv/v/ac2713888)
