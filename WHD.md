@@ -3,9 +3,9 @@
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=21028f2ff036afc30e0c3f6d8318eb85/763ade1001e9390103724fd17cec54e734d196d4.jpg)
 
-日期|主题
-----|----
-|2016/5/14|[！](http://www.acfun.tv/v/ac)
+日期|主题|来宾
+----|----|----
+|2016/5/14|[！](http://www.acfun.tv/v/ac)|侯昌明&曾雅兰&KenKen,小亮哥&林姿佑&瀚谦,王中平&余皓然&韩菲
 |2016/5/07|[台湾台中(下)](http://www.acfun.tv/v/ac2727331)
 |2016/4/30|[台湾台中(上)](http://www.acfun.tv/v/ac2712034)
 |2016/4/23|[澳門珠海(下)](http://www.acfun.tv/v/ac2695895)

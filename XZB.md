@@ -1,9 +1,11 @@
-# 青春星主播
-&copy; ***吳宗憲憲哥全球粉絲QQ群(群號208096042)***
+##《小明星大跟班》全集列表
+######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
+######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
+![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=cffc4b9a44a98226b8c12b2fba83b97a/5e0465d12f2eb938bf68b31dd2628535e4dd6f3f.jpg)
 
-日期|主题
-----|----
-|2015/11/26|[90后女孩吐槽虎妈 完美男被说无聊](http://www.iqiyi.com/v_19rrkbun8o.html)
+日期|主题|来宾
+----|----|----
+|2015/11/26|[90后女孩吐槽虎妈 完美男被说无聊](http://www.iqiyi.com/v_19rrkbun8o.html)|侯昌明&曾雅兰&KenKen,小亮哥&林姿佑&瀚谦,王中平&余皓然&韩菲
 |2015/12/3|[小鲜肉引发三位导师翻脸](http://www.iqiyi.com/v_19rrkapvis.html)
 |2015/12/10|[吴宗宪节目中首次落泪](http://www.iqiyi.com/v_19rrkinas8.html)
 |2015/12/17|[张绍刚不惧折腾 大叔变型男](http://www.iqiyi.com/v_19rrkgmip8.html)
