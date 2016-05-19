@@ -1,5 +1,5 @@
 # 小明星大跟班全集列表
-###### &copy; 吳宗憲憲哥全球粉絲QQ群：208096042
+###### &copy; 吳宗憲粉絲QQ群：208096042 客服微信/QQ：12347450
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=30df9d0bb41c8701d6b6b2ee177d9e6e/9e0da31f3a292df5fe528ffabb315c6036a873aa.jpg)
 
