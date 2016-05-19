@@ -1,8 +1,7 @@
-#综艺玩很大
-&copy;**吳宗憲憲哥全球粉絲QQ群(群號208096042)**
-# 全集列表每周更新一次
-######关注微信公众号:
-![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=ea16009e4c36acaf59e096f44cdb8d03/fdd5fcc379310a5592e09d53b04543a9802610b7.jpg)
+##《综艺玩很大》全集列表
+######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
+######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
+![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=21028f2ff036afc30e0c3f6d8318eb85/763ade1001e9390103724fd17cec54e734d196d4.jpg)
 
 日期|主题
 ----|----
