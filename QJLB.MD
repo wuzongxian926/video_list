@@ -3,6 +3,9 @@
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=8376ace14b086e066aa83f43320a7b5a/43b75a23dd54564ea9b7d4e9b4de9c82d3584f76.jpg)
 
-日期|主题|来宾
+节目类型|节目名称|节目状态
 ----|----|----
-|2016/5/13|[!](http://www.acfun.tv/v/ac)|侯昌明&曾雅兰&KenKen,小亮哥&林姿佑&瀚谦,王中平&余皓然&韩菲
+|带状|[综艺大热门](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)|热播中
+|带状|[小明星大跟班](https://github.com/wuzongxian926/video_list/blob/master/DGB.md)|热播中
+|块状|[综艺玩很大](https://github.com/wuzongxian926/video_list/blob/master/WHD.md)|热播中
+|块状|[青春星主播](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|已下线
