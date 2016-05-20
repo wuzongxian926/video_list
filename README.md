@@ -1,9 +1,7 @@
-# Readme
-## all list
-###### &copy; ***吳宗憲憲哥全球粉絲QQ群(群號208096042)***
-# 全集列表每周更新一次
-######关注微信公众号:
-![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=ea16009e4c36acaf59e096f44cdb8d03/fdd5fcc379310a5592e09d53b04543a9802610b7.jpg)
+##《小明星大跟班》全集列表
+######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
+######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
+![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=8376ace14b086e066aa83f43320a7b5a/43b75a23dd54564ea9b7d4e9b4de9c82d3584f76.jpg)
 	
 * [綜藝玩很大](https://github.com/wuzongxian926/video_list/blob/master/WHD.md)
 * [綜藝大熱門](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)

@@ -1,4 +1,4 @@
-##《小明星大跟班》全集列表
+##《青春星主播》全集列表
 ######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=cffc4b9a44a98226b8c12b2fba83b97a/5e0465d12f2eb938bf68b31dd2628535e4dd6f3f.jpg)
