@@ -3,7 +3,7 @@
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=8376ace14b086e066aa83f43320a7b5a/43b75a23dd54564ea9b7d4e9b4de9c82d3584f76.jpg)
 
-节目类型|节目名称|电视台|节目状态
+类型|节目名称|电视台|状态
 ----|----|----|----
 |带状|[综艺大热门](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)|中天娱乐台|热播中
 |带状|[小明星大跟班](https://github.com/wuzongxian926/video_list/blob/master/DGB.md)|中天娱乐台|热播中
