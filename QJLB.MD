@@ -5,8 +5,7 @@
 
 类型|节目名称|电视台|状态
 ----|----|----|----|----
-|带状|[综艺大热门](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)|三立都会台  
-周一至周五晚九点|热播中
+|带状|[综艺大热门](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)|三立都会台(br)周一至周五晚九点|热播中
 |带状|[小明星大跟班](https://github.com/wuzongxian926/video_list/blob/master/DGB.md)|中天综合台|热播中
 |带状|[综艺玩很大](https://github.com/wuzongxian926/video_list/blob/master/WHD.md)|中国电视台|热播中
 |带状|[青春星主播](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|山东卫视|已下线
