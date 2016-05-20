@@ -1,4 +1,4 @@
-##《综艺大热门》全集列表
+##《綜藝大熱門》全集列表
 ######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=54c26a3071c6a7efb926a82ecdf8afe9/3c9989b44aed2e73380749c38001a18b85d6fa53.jpg)

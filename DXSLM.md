@@ -1,4 +1,4 @@
-##《大学生了没》全集列表
+##《大學生了沒》全集列表
 ######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
 ######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=b7e3971ae1cd7b89e96c3a8b3f264291/99f0e37eca8065386f3333c390dda144af34826c.jpg)
