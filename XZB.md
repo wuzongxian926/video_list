@@ -15,5 +15,4 @@
 |2016/1/14|[吴宗宪传授追梦秘笈](http://www.iqiyi.com/v_19rrl57qjk.html)
 |2016/1/21|[吴宗宪学员扮人偶直播被嫌弃](http://www.iqiyi.com/v_19rrl47l7c.html)
 |2016/1/28|[《非我莫属》主持秀 钉铛遭嫌弃](http://www.iqiyi.com/v_19rrlbt9gk.html)
-***《青春星主播》第一季完结***
 
