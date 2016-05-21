@@ -1,6 +1,6 @@
 ##《台湾综艺节目》全集列表
 ######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
-######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
+######关注微信公众号:综艺GOGOGO | daleloogn | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=8376ace14b086e066aa83f43320a7b5a/43b75a23dd54564ea9b7d4e9b4de9c82d3584f76.jpg)
 
 类型|节目名称|电视台|状态
