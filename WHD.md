@@ -1,6 +1,6 @@
 ##《综艺玩很大》全集列表
 ######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
-######关注微信公众号:daleloogn | 综艺GOGOGO | 宝岛购购购
+######关注微信公众号:综艺GOGOGO | daleloogn | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=21028f2ff036afc30e0c3f6d8318eb85/763ade1001e9390103724fd17cec54e734d196d4.jpg)
 
 日期|主题|来宾
