@@ -5,6 +5,7 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
+|6.10|大学生了没|[http://pan.baidu.com/<BR>s/1boXRbWz](http://pan.baidu.com/s/1boXRbWz) 密码：01i3
 |6.10|综艺大热门|[http://pan.baidu.com/<BR>s/1jICUrzC](http://pan.baidu.com/s/1jICUrzC) 密码：94iu
 |2016.5|综艺大热门|[http://pan.baidu.com/<BR>s/1c2pzDmC](http://pan.baidu.com/s/1c2pzDmC) 密码：e12i
 |2016.5|小明星大跟班|[http://pan.baidu.com/<BR>s/1dED3Tvj](http://pan.baidu.com/s/1dED3Tvj) 密码：drg0
