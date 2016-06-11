@@ -3,7 +3,7 @@
 ######关注微信公众号:综艺GOGOGO | daleloogn | 宝岛购购购
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=ccc75cde90dda144da096cba82b6d009/dbf020f082025aaf641f8606fcedab64024f1a35.jpg)
 
-月份|节目名称|网盘地址
+月份/日期|节目名称|网盘地址
 ----|----|----
 |2016.5|综艺大热门|[http://pan.baidu.com/<BR>s/1c2pzDmC](http://pan.baidu.com/s/1c2pzDmC) 密码：e12i
 |2016.5|小明星大跟班|[http://pan.baidu.com/<BR>s/1dED3Tvj](http://pan.baidu.com/s/1dED3Tvj) 密码：drg0
