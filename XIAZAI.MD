@@ -14,6 +14,11 @@
 |6.9|国光帮帮忙|[http://pan.baidu.com/<BR>s/1pLIjKF5](http://pan.baidu.com/s/1pLIjKF5) 密码：agxz
 |6.9|小明星大跟班|[http://pan.baidu.com/<BR>s/1dEH7WZJ](http://pan.baidu.com/s/1dEH7WZJ) 密码：0sfc
 |6.9|综艺大热门|[http://pan.baidu.com/<BR>s/1qXBfTI8](http://pan.baidu.com/s/1qXBfTI8) 密码：1it3
+|6.8|大学生了没|[http://pan.baidu.com/<BR>s/1jHBYiN0](http://pan.baidu.com/s/1jHBYiN0) 密码：m0w9
+|6.8|爱玩客|[http://pan.baidu.com/<BR>s/1bpqNX4z](http://pan.baidu.com/s/1bpqNX4z) 密码：59n9
+|6.8|国光帮帮忙|[http://pan.baidu.com/<BR>s/1cqkcs2](http://pan.baidu.com/s/1cqkcs2) 密码：m5po
+|6.8|小明星大跟班|[http://pan.baidu.com/<BR>s/1gfhmw9d](http://pan.baidu.com/s/1gfhmw9d) 密码：gc72
+|6.8|综艺大热门|[http://pan.baidu.com/<BR>s/1i5PN9BJ](http://pan.baidu.com/s/1i5PN9BJ) 密码：mama
 |2016.5|综艺大热门|[http://pan.baidu.com/<BR>s/1c2pzDmC](http://pan.baidu.com/s/1c2pzDmC) 密码：e12i
 |2016.5|小明星大跟班|[http://pan.baidu.com/<BR>s/1dED3Tvj](http://pan.baidu.com/s/1dED3Tvj) 密码：drg0
 |2016.5|国光帮帮忙|[http://pan.baidu.com/<BR>s/1c1Pbnxe](http://pan.baidu.com/s/1c1Pbnxe) 密码：ov1o
