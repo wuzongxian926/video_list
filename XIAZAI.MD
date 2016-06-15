@@ -5,7 +5,7 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
-|6.14|大学生了没@|[http://pan.baidu.com/<BR>s/1gfc2CAf](http://pan.baidu.com/s/1gfc2CAf) 密码：k2m0
+|6.14|大学生了没|[http://pan.baidu.com/<BR>s/1hr3oULA](http://pan.baidu.com/s/1hr3oULA) 密码：3axj
 |6.14|爱玩客|[http://pan.baidu.com/<BR>s/1dFrzZ0X](http://pan.baidu.com/s/1dFrzZ0X) 密码：i9k7
 |6.14|国光帮帮忙|[http://pan.baidu.com/<BR>s/1kVk2kib](http://pan.baidu.com/s/1kVk2kib) 密码：q2zg
 |6.14|小明星大跟班|[http://pan.baidu.com/<BR>s/1bNdWsu](http://pan.baidu.com/s/1bNdWsu) 密码：z6zu
