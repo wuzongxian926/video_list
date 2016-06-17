@@ -51,6 +51,11 @@
 |6.6|国光帮帮忙|[http://pan.baidu.com/<BR>s/1bpfsIQV](http://pan.baidu.com/s/1bpfsIQV) 密码：10zz
 |6.6|小明星大跟班|[http://pan.baidu.com/<BR>s/1pK7KqUn](http://pan.baidu.com/s/1pK7KqUn) 密码：4kzf
 |6.6|综艺大热门|[http://pan.baidu.com/<BR>s/1kUCCjJp](http://pan.baidu.com/s/1kUCCjJp) 密码：1gka
+|6.5|综艺大集合|[http://pan.baidu.com/<BR>s/1cwVStS](http://pan.baidu.com/s/1cwVStS) 密码：yv00
+|6.4|名模出任务|[http://pan.baidu.com/<BR>s/1boTN9aZ](http://pan.baidu.com/s/1boTN9aZ) 密码：rr52
+|6.4|超级夜总会|[http://pan.baidu.com/<BR>s/1jIKwjlk](http://pan.baidu.com/s/1jIKwjlk) 密码：bjcv
+|6.4|天才冲冲冲|[http://pan.baidu.com/<BR>s/1jIRNGME](http://pan.baidu.com/s/1jIRNGME) 密码：sa2z
+|6.4|综艺玩很大|[http://pan.baidu.com/<BR>s/1o8QtEqQ](http://pan.baidu.com/s/1o8QtEqQ) 密码：ivvx
 |2016.5|综艺大热门|[http://pan.baidu.com/<BR>s/1c2pzDmC](http://pan.baidu.com/s/1c2pzDmC) 密码：e12i
 |2016.5|小明星大跟班|[http://pan.baidu.com/<BR>s/1dED3Tvj](http://pan.baidu.com/s/1dED3Tvj) 密码：drg0
 |2016.5|国光帮帮忙|[http://pan.baidu.com/<BR>s/1c1Pbnxe](http://pan.baidu.com/s/1c1Pbnxe) 密码：ov1o
