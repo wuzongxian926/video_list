@@ -6,7 +6,8 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
-|6.17|综艺大热门|[http://pan.baidu.com/<BR>s/1cA3hIu](http://pan.baidu.com/s/1cA3hIu) 密码：5c0h
+|6.17|大学生了没|[http://pan.baidu.com/<BR>s/1sl3SVMH](http://pan.baidu.com/s/1sl3SVMH) 密码：5yd0
+|6.17|综艺大热门|[http://pan.baidu.com/<BR>s/1boLan1d](http://pan.baidu.com/s/1boLan1d) 密码：gdpy
 |6.16|大学生了没|[http://pan.baidu.com/<BR>s/1hrIijnI](http://pan.baidu.com/s/1hrIijnI) 密码：3xbx
 |6.16|爱玩客|[http://pan.baidu.com/<BR>s/1jHBs1AA](http://pan.baidu.com/s/1jHBs1AA) 密码：ywlm
 |6.16|国光帮帮忙|[http://pan.baidu.com/<BR>s/1nv7yNlZ](http://pan.baidu.com/s/1nv7yNlZ) 密码：fvvi
