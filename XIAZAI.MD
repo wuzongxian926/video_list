@@ -6,6 +6,7 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
+|6.19|综艺大集合|[http://pan.baidu.com/<BR>s/1pKLXLPL](http://pan.baidu.com/s/1pKLXLPL) 密码：10ld
 |6.18|超级夜总会|[http://pan.baidu.com/<BR>s/1geD086J](http://pan.baidu.com/s/1geD086J) 密码：rsd8
 |6.18|综艺玩很大|[http://pan.baidu.com/<BR>s/1dFuiaml](http://pan.baidu.com/s/1dFuiaml) 密码：e8jt
 |6.17|大学生了没|[http://pan.baidu.com/<BR>s/1sl3SVMH](http://pan.baidu.com/s/1sl3SVMH) 密码：5yd0
