@@ -8,6 +8,7 @@
 ----|----|----
 |6.19|综艺大集合|[http://pan.baidu.com/<BR>s/1pKLXLPL](http://pan.baidu.com/s/1pKLXLPL) 密码：10ld
 |6.18|超级夜总会|[http://pan.baidu.com/<BR>s/1geD086J](http://pan.baidu.com/s/1geD086J) 密码：rsd8
+|6.18|天才冲冲冲|[http://pan.baidu.com/<BR>s/1o8pge9O](http://pan.baidu.com/s/1o8pge9O) 密码：0b9i
 |6.18|综艺玩很大|[http://pan.baidu.com/<BR>s/1dFuiaml](http://pan.baidu.com/s/1dFuiaml) 密码：e8jt
 |6.17|大学生了没|[http://pan.baidu.com/<BR>s/1sl3SVMH](http://pan.baidu.com/s/1sl3SVMH) 密码：5yd0
 |6.17|综艺大热门|[http://pan.baidu.com/<BR>s/1boLan1d](http://pan.baidu.com/s/1boLan1d) 密码：gdpy
