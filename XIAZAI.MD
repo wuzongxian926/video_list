@@ -8,7 +8,7 @@
 ----|----|----
 |6.22|爱玩客|[http://pan.baidu.com/<BR>s/1bpA1tp1](http://pan.baidu.com/s/1bpA1tp1) 密码：i0d1
 |6.22|小明星大跟班|[http://pan.baidu.com/<BR>s/1sljAyRV](http://pan.baidu.com/s/1sljAyRV) 密码：xiv6
-|6.22|综艺大热门|[http://pan.baidu.com/<BR>s/1sliU0g9](http://pan.baidu.com/s/1sliU0g9) 密码：hh6g
+|6.22|综艺大热门|[http://pan.baidu.com/<BR>s/1eRMWmFC](http://pan.baidu.com/s/1eRMWmFC) 密码：5t7r
 |6.21|爱玩客|[http://pan.baidu.com/<BR>s/1o79iF4u](http://pan.baidu.com/s/1o79iF4u) 密码：wq2t
 |6.21|大学生了没|[http://pan.baidu.com/<BR>s/1sly31ZB](http://pan.baidu.com/s/1sly31ZB) 密码：sun2
 |6.21|国光帮帮忙|[http://pan.baidu.com/<BR>s/1slKiiRj](http://pan.baidu.com/s/1slKiiRj) 密码：6wt1
