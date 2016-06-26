@@ -6,6 +6,10 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
+|6.25|超级夜总会|[http://pan.baidu.com/<BR>s/1i4P8ha1](http://pan.baidu.com/s/1i4P8ha1) 密码：ymv7
+|6.25|综艺玩很大|[http://pan.baidu.com/<BR>s/1qXDOAdA](http://pan.baidu.com/s/1qXDOAdA) 密码：iqpp
+|6.24|大学生了没|[http://pan.baidu.com/<BR>s/1dFkFa7J](http://pan.baidu.com/s/1dFkFa7J) 密码：c2vl
+|6.24|综艺大热门|[http://pan.baidu.com/<BR>s/1nu9QUTF](http://pan.baidu.com/s/1nu9QUTF) 密码：47g8
 |6.23|爱玩客|[http://pan.baidu.com/<BR>s/1nviwE6l](http://pan.baidu.com/s/1nviwE6l) 密码：0l8m
 |6.23|大学生了没|[http://pan.baidu.com/<BR>s/1gflWI0F](http://pan.baidu.com/s/1gflWI0F) 密码：6sc6
 |6.23|国光帮帮忙|[http://pan.baidu.com/<BR>s/1bQ2k14](http://pan.baidu.com/s/1bQ2k14) 密码：mv4z
