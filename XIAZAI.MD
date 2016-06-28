@@ -10,7 +10,7 @@
 |6.27|大学生了没|[http://pan.baidu.com/<BR>s/1i50fXNR](http://pan.baidu.com/s/1i50fXNR) 密码：s0of
 |6.27|国光帮帮忙|[http://pan.baidu.com/<BR>s/1bpLqWrX](http://pan.baidu.com/s/1bpLqWrX) 密码：ici5
 |6.27|小明星大跟班|[http://pan.baidu.com/<BR>s/1bplzf11](http://pan.baidu.com/s/1bplzf11) 密码：yw2w
-|6.27|综艺大热门|[http://pan.baidu.com/<BR>s/1bpqiPo7](http://pan.baidu.com/s/1bpqiPo7) 密码：ldmo
+|6.27|综艺大热门|[http://pan.baidu.com/<BR>s/1hsygjMs](http://pan.baidu.com/s/1hsygjMs) 密码：76dp
 |6.25|天才冲冲冲|[http://pan.baidu.com/<BR>s/1nvvoiPb](http://pan.baidu.com/s/1nvvoiPb) 密码：s8jx
 |6.26|综艺大集合|[http://pan.baidu.com/<BR>s/1mhQOb6S](http://pan.baidu.com/s/1mhQOb6S) 密码：2d8y
 |6.25|超级夜总会|[http://pan.baidu.com/<BR>s/1i4P8ha1](http://pan.baidu.com/s/1i4P8ha1) 密码：ymv7
