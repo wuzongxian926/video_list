@@ -6,6 +6,11 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
+|6.28|爱玩客|[http://pan.baidu.com/<BR>s/1jI0JUJW](http://pan.baidu.com/s/1jI0JUJW) 密码：xn19
+|6.28|型男大主厨|[http://pan.baidu.com/<BR>s/1mhN0rlI](http://pan.baidu.com/s/1mhN0rlI) 密码：3546
+|6.28|国光帮帮忙|[http://pan.baidu.com/<BR>s/1geTaeWz](http://pan.baidu.com/s/1geTaeWz) 密码：pdh1
+|6.28|小明星大跟班|[http://pan.baidu.com/<BR>s/1bpxAyXh](http://pan.baidu.com/s/1bpxAyXh) 密码：ehaw
+|6.28|综艺大热门|[http://pan.baidu.com/<BR>s/1nvIUILF](http://pan.baidu.com/s/1nvIUILF) 密码：3epj
 |6.27|爱玩客|[http://pan.baidu.com/<BR>s/1c1W4bni](http://pan.baidu.com/s/1c1W4bni) 密码：i3xj
 |6.27|大学生了没|[http://pan.baidu.com/<BR>s/1i50fXNR](http://pan.baidu.com/s/1i50fXNR) 密码：s0of
 |6.27|国光帮帮忙|[http://pan.baidu.com/<BR>s/1bpLqWrX](http://pan.baidu.com/s/1bpLqWrX) 密码：ici5
