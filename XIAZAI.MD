@@ -6,6 +6,7 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
+|6.28|大学生了没|[http://pan.baidu.com/<BR>s/1o8cVrVc](http://pan.baidu.com/s/1o8cVrVc) 密码：e1u3
 |6.28|爱玩客|[http://pan.baidu.com/<BR>s/1jI0JUJW](http://pan.baidu.com/s/1jI0JUJW) 密码：xn19
 |6.28|型男大主厨|[http://pan.baidu.com/<BR>s/1mhN0rlI](http://pan.baidu.com/s/1mhN0rlI) 密码：3546
 |6.28|国光帮帮忙|[http://pan.baidu.com/<BR>s/1geTaeWz](http://pan.baidu.com/s/1geTaeWz) 密码：pdh1
