@@ -1,5 +1,6 @@
 ##最夯台湾综艺节目
 ##高清视频在线播放/网盘下载
+######请记住我们的地址：TwZy.123Nat.Com
 ######吳宗憲全球粉絲/台湾综艺交流QQ群: 208096042 
 ######微信公众号:daleloogn | 宝岛购购购 客服微信/QQ: 12347450
 ![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=54c26a3071c6a7efb926a82ecdf8afe9/3c9989b44aed2e73380749c38001a18b85d6fa53.jpg)
