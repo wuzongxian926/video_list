@@ -6,6 +6,7 @@
 
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
+|7.1|综艺大热门|[http://pan.baidu.com/<BR>s/1dED5rSd](http://pan.baidu.com/s/1dED5rSd) 密码：i1af
 |6.30|大学生了没|[http://pan.baidu.com/<BR>s/1nuHYGNf](http://pan.baidu.com/s/1nuHYGNf) 密码：jz6f
 |6.30|爱玩客|[http://pan.baidu.com/<BR>s/1boVQpUR](http://pan.baidu.com/s/1boVQpUR) 密码：uh1v
 |6.30|型男大主厨|[http://pan.baidu.com/<BR>s/1jIB90fs](http://pan.baidu.com/s/1jIB90fs) 密码：h29l
