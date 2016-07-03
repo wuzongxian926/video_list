@@ -7,4 +7,4 @@
 
 日期|节目|主题|来宾|在线|下载
 ----|----|----|----|----|----
-|20160702|综艺玩很大|嘉义（下）|吴宗宪,Kid,浩角翔起(浩子,阿翔),谢忻,赵孟姿,詹子晴,梁以辰,黄豪平|播放|[下载](https://github.com/wuzongxian926/video_list/blob/master/XIAZAI.MD)
+|20160702|综艺玩很大|嘉义（下）|<small>吴宗宪,Kid,浩角翔起(浩子,阿翔),谢忻,赵孟姿,詹子晴,梁以辰,黄豪平</small>|播放|[下载](https://github.com/wuzongxian926/video_list/blob/master/XIAZAI.MD)
