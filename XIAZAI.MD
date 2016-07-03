@@ -1,9 +1,3 @@
-##《台湾综艺节目》资源下载
-####每晚00：30左右发布！
-######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
-######关注微信公众号:综艺GOGOGO | daleloogn | 宝岛购购购
-![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=ccc75cde90dda144da096cba82b6d009/dbf020f082025aaf641f8606fcedab64024f1a35.jpg)
-
 月份<BR>日期|节目名称|网盘地址
 ----|----|----
 |7.1|大学生了没|[http://pan.baidu.com/<BR>s/1qYVGb16](http://pan.baidu.com/s/1qYVGb16) 密码：rf8j
