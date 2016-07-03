@@ -1,4 +1,4 @@
-##台湾综艺([www.twzy.tw](http://www.twzy.tw){:target="_blank"})
+##台湾综艺([www.twzy.tw](http://www.twzy.tw))
 ##高清视频在线播放/网盘下载
 ######请记住我们的地址：[www.twzy.tw](http://www.twzy.tw) | [zy.twzy.tw](http://www.twzy.tw)
 ######吳宗憲憲哥全球粉絲/台湾综艺交流QQ群: 208096042 
