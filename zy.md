@@ -1,4 +1,4 @@
-# <div align = right>台湾综艺频道([www.twzy.tw](http://www.twzy.tw))</dir>
+# <div align = center>台湾综艺频道([www.twzy.tw](http://www.twzy.tw))</dir>
 * * *
 高清视频在线播放/网盘下载
 ######请记住我们的地址：[www.twzy.tw](http://www.twzy.tw) | [xz.twzy.tw](http://xz.twzy.tw)
