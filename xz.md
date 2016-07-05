@@ -5,6 +5,7 @@
 
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
+|7.4|穿越康熙|[http://pan.baidu.com/s/1hs36llq](http://pan.baidu.com/s/1hs36llq)<br>密码:vfn3|小明星大跟班|[http://pan.baidu.com/s/1bpMDoYj](http://pan.baidu.com/s/1bpMDoYj)<br>密码:oeyl
 |2016年<br>6月份|综艺大热门|[http://pan.baidu.com/s/1c1PcLrE](http://pan.baidu.com/s/1c1PcLrE)<br>密码:df76|小明星大跟班|[http://pan.baidu.com/s/1bpMDoYj](http://pan.baidu.com/s/1bpMDoYj)<br>密码:oeyl
 |2016年<br>6月份|国光帮帮忙|[http://pan.baidu.com/s/1hrZJZes](http://pan.baidu.com/s/1hrZJZes)<br>密码:ltxd|大学生了没|[http://pan.baidu.com/s/1b4OhmI](http://pan.baidu.com/s/1b4OhmI)<br>密码:m8cg
 |2016年<br>6月份|爱玩客|[http://pan.baidu.com/s/1ckL6H4](http://pan.baidu.com/s/1ckL6H4)<br>密码:gy8s|综艺玩很大|[http://pan.baidu.com/s/1i5O2QMT](http://pan.baidu.com/s/1i5O2QMT)<br>密码:w5d0
