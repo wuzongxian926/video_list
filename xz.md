@@ -5,7 +5,8 @@
 
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
-|7.4|娱乐百分百|[http://pan.baidu.com/s/1i58TQZj](http://pan.baidu.com/s/1i58TQZj)<br>密码:214a|食尚玩家|[http://pan.baidu.com/s/1nuIERaD](http://pan.baidu.com/s/1nuIERaD)<br>密码:f4mr
+|7.4|请你跟我这样过|[http://pan.baidu.com/s/1bVm9bS](http://pan.baidu.com/s/1bVm9bS)<br>密码:4zj3|
+|7.4|娱乐百分百|[http://pan.baidu.com/s/1i58TQZj](http://pan.baidu.com/s/1i58TQZj)<br>密码:214a|食尚玩家|[http://pan.baidu.com/s/1boTO7Sz](http://pan.baidu.com/s/1boTO7Sz)<br>密码:9e9o
 |7.4|爱玩客|[http://pan.baidu.com/s/1qXNs3ow](http://pan.baidu.com/s/1qXNs3ow)<br>密码:6iua|医师好辣|[http://pan.baidu.com/s/1nuIERaD](http://pan.baidu.com/s/1nuIERaD)<br>密码:f4mr
 |7.4|美食好简单|[http://pan.baidu.com/s/1i5nVhZ3](http://pan.baidu.com/s/1i5nVhZ3)<br>密码:ua68|国光帮帮忙|[http://pan.baidu.com/s/1c27cizu](http://pan.baidu.com/s/1c27cizu)<br>密码:utvm
 |7.4|大学生了没|[http://pan.baidu.com/s/1c13yhk0](http://pan.baidu.com/s/1c13yhk0)<br>密码:5zka|美凤有约|[http://pan.baidu.com/s/1c2BfTFa](http://pan.baidu.com/s/1c2BfTFa)<br>密码:98tk
