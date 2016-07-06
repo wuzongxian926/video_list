@@ -1,48 +1,48 @@
-#《愛玩客》全集列表
-######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
-######关注微信公众号:综艺GOGOGO | daleloogn | 宝岛购购购
-![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=9cd67cdf8094a4c20a23e7233ef51bac/dec97b34349b033b11eb610a12ce36d3d739bde6.jpg)
+# <div align = center>《爱玩客》全集</div>
+#### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
+##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
+<div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
-日期|主题|来宾
-----|----|----
-|2016/6/30|[高雄 阿豆仔旅行团 FUN暑假雄好玩](http://www.acfun.tv/v/ac2857791)|吴凤,刘雨柔,法比欧,玛格丽特
-|2016/6/29|[玩乐大爆料！百万网友直播大推荐！](http://www.acfun.tv/v/ac2857034_5)|阿达,陈大天,林明祯
-|2016/6/28|[金门 限定！满足条件才吃的到！](http://www.acfun.tv/v/ac2852358)|詹姆士,韦汝
-|2016/6/27|[绝美飘浮婚纱！深山拍照秘境大公开](http://www.acfun.tv/v/ac2849640)|小钟,鲔鱼,宇珊
-|2016/6/23|[花蓮 什麼都敢吃！什麼都敢玩！](http://www.acfun.tv/v/ac2839893)|吴凤 贾斯汀
-|2016/6/22|[我的极品神展开 夏日疯狂玩乐](http://www.acfun.tv/v/ac2837205)|阿达,陈大天,郭书瑶,吴心缇
-|2016/6/21|[梦幻天堂太美丽 为什么你不来](http://www.acfun.tv/v/ac2834480)|詹姆士,雷瑟琳
-|2016/6/20|[立马打卡!2016台中最热点报你知](http://www.acfun.tv/v/ac2834337_5)|小钟,鲔鱼,宇珊
-|2016/6/16|[高雄 港都自由行！玩出道地海味！！](http://www.acfun.tv/v/ac2823055)|吳鳳 塔提雅娜
-|2016/6/15|[宿雾9453度假天堂 双岛PK大推荐](http://www.acfun.tv/v/ac2822145_5)|阿达,陈大天
-|2016/6/14|[金门 一日三餐！自食其力过生活](http://www.acfun.tv/v/ac2817371)|詹姆士,韦汝
-|2016/6/13|[兰屿+绿岛 离岛最猛玩法 走跳兰绿双岛 （下）](http://www.acfun.tv/v/ac2814755)|小钟,鲔鱼
-|2016/6/09|[台南農夫生活初體驗](http://www.acfun.tv/v/ac2808711)|吳鳳 安妮
-|2016/6/08|[新加坡 清凉一下 最强躲太阳两天一夜游](http://www.acfun.tv/v/ac2803532_5)|阿达,陈大天,阳咏存
-|2016/6/07|[世界顶级海鲜 排除万难也要吃](http://www.acfun.tv/v/ac2797870)|詹姆士
-|2016/6/06|[兰屿+绿岛 离岛最猛玩法 走跳兰绿双岛](http://www.acfun.tv/v/ac2801988_5)|小钟,鲔鱼
-|2016/6/02|[澎湖 牛屎面膜！精彩花火！六種方式讓你愛上澎湖！！](http://www.acfun.tv/v/ac2788410)|吴凤 大久保麻梨子
-|2016/6/01|[東京超療癒萌萌噠樂園之旅](http://www.acfun.tv/v/ac2788003_5)|阿達 陳大天 陽詠存
-|2016/5/31|[嘉義 台灣難波萬！尋找道地台灣味！](http://www.acfun.tv/v/ac2783557)|詹姆士 雷瑟琳
-|2016/5/30|[首爾 五熊的緊急宣言 鮪魚真情流露!!](http://www.acfun.tv/v/ac2781339_5)|小鍾 五熊 鮪魚
-|2016/5/26|[Camping趣! 意想不到的宜蘭好滋味](http://www.acfun.tv/v/ac2772149_4)|吳鳳 賴倫佐
-|2016/5/25|[新加坡360度無死角 玩樂新旅點](http://www.acfun.tv/v/ac2769741_5)|阿達 陳大天 陽詠存
-|2016/5/24|[家鄉味 主廚帶路 尋找府城媽媽味!](http://www.acfun.tv/v/ac2767243_5)|詹姆士 韋汝
-|2016/5/23|[首爾! 鐘急補瑜計劃](http://www.acfun.tv/v/ac2765347_5)|小鍾 五熊 鮪魚
-|2016/5/19|[高雄 港都驚嘆美食 娜美女神帶你吃](http://www.acfun.tv/v/ac2755484_5)|吳鳳 林明禎
-|2016/5/18|[濟州 強心臟美食團 好膽揪來玩](http://www.acfun.tv/v/ac2759922_2)|阿達 陽詠存
-|2016/5/17|[特搜! 竹山暗崁美味大公開](http://www.acfun.tv/v/ac2759922)|詹姆士 韋汝
-|2016/5/16|[台中女神聯萌 奇幻高空大玩樂](http://www.acfun.tv/v/ac2747211)|小鍾 五熊 鮪魚
-|2016/5/12|[疯妈祖全攻略 这样玩才对WAY](http://www.acfun.tv/v/ac2740309_5)|吴凤,韦佳德
-|2016/5/11|[首尔无限挑战 不正经料理](http://www.acfun.tv/v/ac2734840_5)|阿达,吴映洁
-|2016/5/10|[勇闯南投 找好食材怎么那么难](http://www.acfun.tv/v/ac2732197)|詹姆士,高蕾雅
-|2016/5/09|[Doctor钟紧急出诊 新竹店家SOS！！](http://www.acfun.tv/v/ac2730350_5)|小钟,五熊,鲔鱼
-|2016/5/05|[南投 时尚法模原乡生活初体验](http://www.acfun.tv/v/ac2734806_5)|吴凤,法比欧
-|2016/5/04|[世界第一高尾山电铁之旅](http://www.acfun.tv/v/ac2745317_5)|阿达,陈大天,阳咏存
-|2016/5/03|[美食任务 带你挖出三种好味道！](http://www.acfun.tv/v/ac2749308_5)|詹姆士,高蕾雅
-|2016/5/02|[澎湖 旅遊大富翁 花火節這樣最超值](http://www.acfun.tv/v/ac2751995_5)|小鍾 五熊 鮪魚
-|2016/4/28|[Doctor钟紧急出诊 新竹店家SOS！！](http://www.acfun.tv/v/ac2730350_5)|小钟,五熊,鲔鱼
-|2016/4/27|[南投 时尚法模原乡生活初体验](http://www.acfun.tv/v/ac2734806_5)|吴凤,法比欧
-|2016/4/26|[世界第一高尾山电铁之旅](http://www.acfun.tv/v/ac2745317_5)|阿达,陈大天,阳咏存
-|2016/4/25|[美食任务 带你挖出三种好味道！](http://www.acfun.tv/v/ac2749308_5)|詹姆士,高蕾雅
-|2016/4/21|[台南 俄羅斯悍妞 農夫生活初體驗](http://www.acfun.tv/v/ac2751995_5)|吳鳳 安妮
+日期|主题|来宾|在线|下载
+----|----|----|----|----
+|2016/6/30|高雄 阿豆仔旅行团 FUN暑假雄好玩|吴凤,刘雨柔,法比欧,玛格丽特|[点击播放](http://www.acfun.tv/v/ac2857791)|[网盘下载](http://xz.twzy.tw)
+|2016/6/29|玩乐大爆料！百万网友直播大推荐！|阿达,陈大天,林明祯|[点击播放](http://www.acfun.tv/v/ac2857034_5)|[网盘下载](http://xz.twzy.tw)
+|2016/6/28|金门 限定！满足条件才吃的到！|詹姆士,韦汝|[点击播放](http://www.acfun.tv/v/ac2852358)|[网盘下载](http://xz.twzy.tw)
+|2016/6/27|绝美飘浮婚纱！深山拍照秘境大公开|小钟,鲔鱼,宇珊|[点击播放](http://www.acfun.tv/v/ac2849640)|[网盘下载](http://xz.twzy.tw)
+|2016/6/23|花蓮 什麼都敢吃！什麼都敢玩！|吴凤 贾斯汀|[点击播放](http://www.acfun.tv/v/ac2839893)|[网盘下载](http://xz.twzy.tw)
+|2016/6/22|我的极品神展开 夏日疯狂玩乐|阿达,陈大天,郭书瑶,吴心缇|[点击播放](http://www.acfun.tv/v/ac2837205)|[网盘下载](http://xz.twzy.tw)
+|2016/6/21|梦幻天堂太美丽 为什么你不来|詹姆士,雷瑟琳|[点击播放](http://www.acfun.tv/v/ac2834480)|[网盘下载](http://xz.twzy.tw)
+|2016/6/20|立马打卡!2016台中最热点报你知|小钟,鲔鱼,宇珊|[点击播放](http://www.acfun.tv/v/ac2834337_5)|[网盘下载](http://xz.twzy.tw)
+|2016/6/16|高雄 港都自由行！玩出道地海味！！|吳鳳 塔提雅娜|[点击播放](http://www.acfun.tv/v/ac2823055)|[网盘下载](http://xz.twzy.tw)
+|2016/6/15|宿雾9453度假天堂 双岛PK大推荐|阿达,陈大天|[点击播放](http://www.acfun.tv/v/ac2822145_5)|[网盘下载](http://xz.twzy.tw)
+|2016/6/14|金门 一日三餐！自食其力过生活|詹姆士,韦汝|[点击播放](http://www.acfun.tv/v/ac2817371)|[网盘下载](http://xz.twzy.tw)
+|2016/6/13|兰屿+绿岛 离岛最猛玩法 走跳兰绿双岛（下）|小钟,鲔鱼|[点击播放](http://www.acfun.tv/v/ac2814755)|[网盘下载](http://xz.twzy.tw)
+|2016/6/09|台南農夫生活初體驗|吳鳳 安妮|[点击播放](http://www.acfun.tv/v/ac2808711)|[网盘下载](http://xz.twzy.tw)
+|2016/6/08|新加坡 清凉一下 最强躲太阳两天一夜游|阿达,陈大天,阳咏存|[点击播放](http://www.acfun.tv/v/ac2803532_5)|[网盘下载](http://xz.twzy.tw)
+|2016/6/07|世界顶级海鲜 排除万难也要吃|詹姆士|[点击播放](http://www.acfun.tv/v/ac2797870)|[网盘下载](http://xz.twzy.tw)
+|2016/6/06|兰屿+绿岛 离岛最猛玩法 走跳兰绿双岛|小钟,鲔鱼|[点击播放](http://www.acfun.tv/v/ac2801988_5)|[网盘下载](http://xz.twzy.tw)
+|2016/6/02|澎湖 牛屎面膜！精彩花火！六種方式讓你愛上澎湖！！|吴凤 大久保麻梨子|[点击播放](http://www.acfun.tv/v/ac2788410)|[网盘下载](http://xz.twzy.tw)
+|2016/6/01|東京超療癒萌萌噠樂園之旅|阿達 陳大天 陽詠存|[点击播放](http://www.acfun.tv/v/ac2788003_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/31|嘉義 台灣難波萬！尋找道地台灣味！|詹姆士 雷瑟琳|[点击播放](http://www.acfun.tv/v/ac2783557)|[网盘下载](http://xz.twzy.tw)
+|2016/5/30|首爾 五熊的緊急宣言 鮪魚真情流露!!|小鍾 五熊 鮪魚|[点击播放](http://www.acfun.tv/v/ac2781339_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/26|Camping趣! 意想不到的宜蘭好滋味|吳鳳 賴倫佐|[点击播放](http://www.acfun.tv/v/ac2772149_4)|[网盘下载](http://xz.twzy.tw)
+|2016/5/25|新加坡360度無死角 玩樂新旅點|阿達 陳大天 陽詠存|[点击播放](http://www.acfun.tv/v/ac2769741_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/24|家鄉味 主廚帶路 尋找府城媽媽味!|詹姆士 韋汝|[点击播放](http://www.acfun.tv/v/ac2767243_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/23|首爾! 鐘急補瑜計劃|小鍾 五熊 鮪魚|[点击播放](http://www.acfun.tv/v/ac2765347_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/19|高雄 港都驚嘆美食 娜美女神帶你吃|吳鳳 林明禎|[点击播放](http://www.acfun.tv/v/ac2755484_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/18|濟州 強心臟美食團 好膽揪來玩|阿達 陽詠存|[点击播放](http://www.acfun.tv/v/ac2759922_2)|[网盘下载](http://xz.twzy.tw)
+|2016/5/17|特搜! 竹山暗崁美味大公開|詹姆士 韋汝|[点击播放](http://www.acfun.tv/v/ac2759922)|[网盘下载](http://xz.twzy.tw)
+|2016/5/16|台中女神聯萌 奇幻高空大玩樂|小鍾 五熊 鮪魚|[点击播放](http://www.acfun.tv/v/ac2747211)|[网盘下载](http://xz.twzy.tw)
+|2016/5/12|疯妈祖全攻略 这样玩才对WAY|吴凤,韦佳德|[点击播放](http://www.acfun.tv/v/ac2740309_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/11|首尔无限挑战 不正经料理|阿达,吴映洁|[点击播放](http://www.acfun.tv/v/ac2734840_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/10|勇闯南投 找好食材怎么那么难|詹姆士,高蕾雅|[点击播放](http://www.acfun.tv/v/ac2732197)|[网盘下载](http://xz.twzy.tw)
+|2016/5/09|Doctor钟紧急出诊 新竹店家SOS！！|小钟,五熊,鲔鱼|[点击播放](http://www.acfun.tv/v/ac2730350_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/05|南投 时尚法模原乡生活初体验|吴凤,法比欧|[点击播放](http://www.acfun.tv/v/ac2734806_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/04|世界第一高尾山电铁之旅|阿达,陈大天,阳咏存|[点击播放](http://www.acfun.tv/v/ac2745317_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/03|美食任务 带你挖出三种好味道！|詹姆士,高蕾雅|[点击播放](http://www.acfun.tv/v/ac2749308_5)|[网盘下载](http://xz.twzy.tw)
+|2016/5/02|澎湖 旅遊大富翁 花火節這樣最超值|小鍾 五熊 鮪魚|[点击播放](http://www.acfun.tv/v/ac2751995_5)|[网盘下载](http://xz.twzy.tw)
+|2016/4/28|Doctor钟紧急出诊 新竹店家SOS！！|小钟,五熊,鲔鱼|[点击播放](http://www.acfun.tv/v/ac2730350_5)|[网盘下载](http://xz.twzy.tw)
+|2016/4/27|南投 时尚法模原乡生活初体验|吴凤,法比欧|[点击播放](http://www.acfun.tv/v/ac2734806_5)|[网盘下载](http://xz.twzy.tw)
+|2016/4/26|世界第一高尾山电铁之旅|阿达,陈大天,阳咏存|[点击播放](http://www.acfun.tv/v/ac2745317_5)|[网盘下载](http://xz.twzy.tw)
+|2016/4/25|美食任务 带你挖出三种好味道！|詹姆士,高蕾雅|[点击播放](http://www.acfun.tv/v/ac2749308_5)|[网盘下载](http://xz.twzy.tw)
+|2016/4/21|台南 俄羅斯悍妞 農夫生活初體驗|吳鳳 安妮|[点击播放](http://www.acfun.tv/v/ac2751995_5)|[网盘下载](http://xz.twzy.tw)
