@@ -1,11 +1,11 @@
-##《綜藝大熱門》全集列表
-######吳宗憲粉絲QQ群: 208096042  |  客服微信/QQ: 12347450
-######关注微信公众号:综艺GOGOGO | daleloogn | 宝岛购购购
-![pic](http://imgsrc.baidu.com/forum/w%3D580/sign=54c26a3071c6a7efb926a82ecdf8afe9/3c9989b44aed2e73380749c38001a18b85d6fa53.jpg)
+# <div align = center>台湾综艺频道([www.twzy.tw](http://www.twzy.tw))</div>
+#### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
+##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
+<div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
-日期|主题|来宾
-----|----|----
-|2016/6/30|[兄弟阋墙之夜！明星球员私底下都这个样？](http://www.acfun.tv/v/ac2857820)|林智胜,陈江和,张志豪,陈家驹,陈子豪
+日期|主题|来宾|在线|下载
+----|----|----|----|----
+|2016/6/30|[兄弟阋墙之夜！明星球员私底下都这个样？]|林智胜,陈江和,张志豪,陈家驹,陈子豪|[点击播放](http://www.acfun.tv/v/ac2857820)|[网盘下载](http://xz.twzy.tw)
 |2016/6/29|[找出和你擦肩而過的人！可能就是你的另一半！！](http://www.acfun.tv/v/ac2857034)|郭鑫,Emily,小钟,熊海灵
 |2016/6/28|[听音辨位！你能揪出谁是外国人？](http://www.acfun.tv/v/ac2852320)|沈玉琳,李腾,M4(林乐伟,纪妍,郭婕祈,米亚若),林良欢,金承熙
 |2016/6/27|[不看脸也能算！这个局部器官决定你的命！](http://www.acfun.tv/v/ac2851708)|谢沅瑾,詹惟中,安格斯,董至成,宋少卿,Apple,黄乔歆,小钟,马国贤
