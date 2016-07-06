@@ -113,7 +113,7 @@
 |2016/2/4|想都想不到！！年货也能这样卖！||[点击播放](http://www.acfun.tv/v/ac2517779)|[网盘下载](http://xz.twzy.tw)
 |2016/2/3|什么都卖什么都不奇怪！艺人拍卖会！||[点击播放](http://www.acfun.tv/v/ac2516747)|[网盘下载](http://xz.twzy.tw)
 |2016/2/2|吃饭好声音！你愿意为了他饿肚子吗？||[点击播放](http://www.acfun.tv/v/ac2513171)|[网盘下载](http://xz.twzy.tw)
-|2016/2/1|[活腻了才敢爆他的料？关键字出卖大会！](http://www.acfun.tv/v/ac2510892)||[点击播放](http://www.acfun.tv/v/ac2591035)|[网盘下载](http://xz.twzy.tw)
+|2016/2/1|活腻了才敢爆他的料？关键字出卖大会！||[点击播放](http://www.acfun.tv/v/ac2510892)|[网盘下载](http://xz.twzy.tw)
 |2016/1/29|争议人物出来面对！这件事他有话要说！！||[点击播放](http://www.acfun.tv/v/ac2504494)|[网盘下载](http://xz.twzy.tw)
 |2016/1/28|吃办桌配什么表演最对味？办桌表演PK秀||[点击播放](http://www.acfun.tv/v/ac2504486)|[网盘下载](http://xz.twzy.tw)
 |2016/1/27|女神音乐盒！今晚谁唱给你听？||[点击播放](http://www.acfun.tv/v/ac2494691)|[网盘下载](http://xz.twzy.tw)
