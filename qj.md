@@ -20,4 +20,4 @@
 |块状|[舞力全开]()|民视无线台<br>每周六晚10点|热播|块状|[流行新势力]()|民视综合台<br>每周二晚11点|热播
 |块状|[综艺大集合](https://github.com/wuzongxian926/video_list/blob/master/ZYDJH.MD)|民视<br>每周日晚8点|热播|块状|[全民一起來]()|中华电视台<br>每周六晚8点|热播
 |块状|[台湾名人堂]()|台湾电视台<br>每周日早10点|热播|块状|[大陆寻奇]()|中国电视台<br>每周日晚6点|热播
-|带状|[青春星主播](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|山东卫视|下线
+|块状|[青春星主播](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|山东卫视|下线
