@@ -14,8 +14,10 @@
 |带状|[爱玩客](https://github.com/wuzongxian926/video_list/blob/master/AWK.md)|三立都会台<br>周一至周四晚10点|热播|带状|[医师好辣]()|东森综合台<br>周一至周四晚10点|热播
 |带状|[食尚玩家]()|TVBS<br>周一至周四晚10点|热播|带状|[请你跟我这样过]()|东森超视<br>周一至周四晚8点|热播
 |带状|[穿越康熙]()|中天综合台<br>周一至周五晚6点|热播|块状|[综艺玩很大](https://github.com/wuzongxian926/video_list/blob/master/WHD.md)|中国电视台<br>每周六晚10点|热播
-|块状|[天才冲冲冲](https://github.com/wuzongxian926/video_list/blob/master/TCCCC.MD)|华视<br>每周六晚10点|热播
-|块状|[综艺大集合](https://github.com/wuzongxian926/video_list/blob/master/ZYDJH.MD)|民视<br>每周日晚8点|热播
-|块状|[超级夜总会](https://github.com/wuzongxian926/video_list/blob/master/CJYZH.MD)|三立台湾台<br>每周六晚6:30|热播
-|块状|[名模出任务](https://github.com/wuzongxian926/video_list/blob/master/MMCRW.MD)|华视<br>每周六晚8点|热播
+|块状|[天才冲冲冲](https://github.com/wuzongxian926/video_list/blob/master/TCCCC.MD)|中华电视台<br>每周六晚10点|热播|块状|[超级夜总会](https://github.com/wuzongxian926/video_list/blob/master/CJYZH.MD)|三立台湾台<br>每周六晚6:30|热播
+|块状|[名模出任务](https://github.com/wuzongxian926/video_list/blob/master/MMCRW.MD)|中华电视台<br>每周日晚10点|热播|块状|[正妹讚出來]()|台湾电视台<br>每周三晚10点|热播
+|块状|[一字千金]()|公共电视台<br>每周四晚9点|热播|块状|[超爱美小姐]()|MTV娱乐台、三立都会台<br>每周六日午2点|热播
+|块状|[舞力全开]()|民视无线台<br>每周六晚10点|热播|块状|[流行新势力]()|民视综合台<br>每周二晚11点|热播
+|块状|[综艺大集合](https://github.com/wuzongxian926/video_list/blob/master/ZYDJH.MD)|民视<br>每周日晚8点|热播|块状|[全民一起來]()|中华电视台<br>每周六晚8点|热播
+|块状|[台湾名人堂]()|台湾电视台<br>每周日早10点|热播|块状|[大陆寻奇]()|中国电视台<br>每周日晚6点|热播
 |带状|[青春星主播](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|山东卫视|下线
