@@ -9,7 +9,7 @@
 |20160706|小明星大跟班|最難熬的一天！女神殘酷排位戰！|来宾|[点击播放](http://www.acfun.tv/v/ac2873416)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|小燕之夜|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|大学生了没|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160706|型男大主厨|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160706|型男大主厨|飛魚高校乾3杯料理大賽！！|来宾|[点击播放](http://www.acfun.tv/v/ac2875060_2)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|女人我最大|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|上班这党事|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|2分之一強|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
