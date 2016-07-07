@@ -5,15 +5,15 @@
 
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
-|7.6|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
+|7.6|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1sly4qzN](http://pan.baidu.com/s/1sly4qzN)<br>密码:avln
 |7.6|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
 |7.6|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |7.6|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.6|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
-|7.6|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
-|7.6|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|7.6|美食好简单|[http://pan.baidu.com/s/1sl9tByt](http://pan.baidu.com/s/1sl9tByt)<br>密码:80a7|国光帮帮忙|[]()<br>密码:
+|7.6|爱玩客|[http://pan.baidu.com/s/1eSsfhpo](http://pan.baidu.com/s/1eSsfhpo)<br>密码:b109|医师好辣|[]()<br>密码:
 |7.6|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
-|7.6|穿越康熙|[]()<br>密码:|一字千金|[]()<br>密码:
+|7.6|穿越康熙|[http://pan.baidu.com/s/1kVNIZOF](http://pan.baidu.com/s/1kVNIZOF)<br>密码:w485|一字千金|[]()<br>密码:
 |7.6|综艺大热门|[http://pan.baidu.com/s/1bTkGTg](http://pan.baidu.com/s/1bTkGTg)<br>密码:pj1a|小明星大跟班|[http://pan.baidu.com/s/1hsz25EG](http://pan.baidu.com/s/1hsz25EG)<br>密码:wdv9
 |7.6|小燕之夜|[http://pan.baidu.com/s/1bpbqmaN](http://pan.baidu.com/s/1bpbqmaN)<br>密码:9diz|大学生了没|[http://pan.baidu.com/s/1bp9Mj1P](http://pan.baidu.com/s/1bp9Mj1P)<br>密码:gnkf
 |7.6|型男大主厨|[http://pan.baidu.com/s/1gfFdCWj](http://pan.baidu.com/s/1gfFdCWj)<br>密码:ludk|女人我最大|[http://pan.baidu.com/s/1kUOiKhp](http://pan.baidu.com/s/1kUOiKhp)<br>密码:bntv
