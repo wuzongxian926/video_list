@@ -5,13 +5,13 @@
 
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
-|7.6|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
+|7.6|综艺大热门|[http://pan.baidu.com/s/1bTkGTg](http://pan.baidu.com/s/1bTkGTg)<br>密码:pj1a|小明星大跟班|[http://pan.baidu.com/s/1hsz25EG](http://pan.baidu.com/s/1hsz25EG)<br>密码:wdv9
 |7.6|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.6|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|7.6|型男大主厨|[http://pan.baidu.com/s/1gfFdCWj](http://pan.baidu.com/s/1gfFdCWj)<br>密码:ludk|女人我最大|[]()<br>密码:
 |7.6|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
-|7.6|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
-|7.6|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
-|7.6|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|7.6|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1qXQGsna](http://pan.baidu.com/s/1qXQGsna)<br>密码:uvvt
+|7.6|美食好简单|[]()<br>密码:|国光帮帮忙|[http://pan.baidu.com/s/1hsvyL2c](http://pan.baidu.com/s/1hsvyL2c)<br>密码:vdgp
+|7.6|爱玩客|[http://pan.baidu.com/s/1eR3uhV0](http://pan.baidu.com/s/1eR3uhV0)<br>密码:cxhs|医师好辣|[]()<br>密码:
 |7.6|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.6|穿越康熙|[]()<br>密码:|正妹讚出來|[]()<br>密码:
 |7.5|综艺大热门|[http://pan.baidu.com/s/1c1Y6qPU](http://pan.baidu.com/s/1c1Y6qPU)<br>密码:u96s|小明星大跟班|[http://pan.baidu.com/s/1qYhBmOW](http://pan.baidu.com/s/1qYhBmOW)<br>密码:viv0
