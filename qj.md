@@ -20,4 +20,4 @@
 |块状|[舞力全开](https://github.com/wuzongxian926/video_list/blob/master/wlqk.md)|民视无线台<br>每周六晚10点|热播|块状|[流行新势力](https://github.com/wuzongxian926/video_list/blob/master/lxxsl.md)|民视综合台<br>每周二晚11点|热播
 |块状|[综艺大集合](https://github.com/wuzongxian926/video_list/blob/master/ZYDJH.MD)|民视<br>每周日晚8点|热播|块状|[全民一起來](https://github.com/wuzongxian926/video_list/blob/master/qmyql.md)|中华电视台<br>每周六晚8点|热播
 |块状|[台湾名人堂](https://github.com/wuzongxian926/video_list/blob/master/twmrt.md)|台湾电视台<br>每周日早10点|热播|块状|[大陆寻奇](https://github.com/wuzongxian926/video_list/blob/master/dlxq.md)|中国电视台<br>每周日晚6点|热播
-|块状|[青春星主播](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|山东卫视|下线
+|块状|[青春星主播(宪哥)](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|山东卫视|下线
