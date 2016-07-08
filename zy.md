@@ -40,6 +40,7 @@
 |20160706|食尚玩家|失落的靈珠 韓日3|颜永烈 阿松 莎莎 恺乐 浩子 阿翔|[点击播放](http://www.acfun.tv/v/ac2875286)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|请你跟我这样过|骨質疏鬆不用怕？！|梁家榕 丁宁 小甜甜 洪永祥 刘怡里 洪素卿|[点击播放](http://www.acfun.tv/v/ac2875243)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160706|穿越康熙|長相相似就是一家人？！|来宾|[点击播放](http://www.acfun.tv/v/ac2873829)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160706|正妹讚出來|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160705|综艺大热门|經典紅歌用台語唱還流行嗎？！|来宾|[点击播放](http://www.acfun.tv/v/ac2870736)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160705|小明星大跟班|書怎麼讀才有效？！ 榜首教你念書密技！|来宾|[点击播放](http://www.acfun.tv/v/ac2870660)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160705|小燕之夜|女人的改變！|来宾|[点击播放](http://www.acfun.tv/v/ac2871806)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
