@@ -18,7 +18,7 @@
 |7.7|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |7.7|美食好简单|[http://pan.baidu.com/s/1sl9tByt](http://pan.baidu.com/s/1sl9tByt)<br>密码:80a7|国光帮帮忙|[http://pan.baidu.com/s/1c2fXUSw](http://pan.baidu.com/s/1c2fXUSw)<br>密码:5jff
 |7.7|爱玩客|[http://pan.baidu.com/s/1eSsfhpo](http://pan.baidu.com/s/1eSsfhpo)<br>密码:b109|医师好辣|[http://pan.baidu.com/s/1bYA2q6](http://pan.baidu.com/s/1bYA2q6)<br>密码:66sm
-|7.7|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
+|7.7|食尚玩家|[http://pan.baidu.com/s/1mixsBhu](http://pan.baidu.com/s/1mixsBhu)<br>密码:wunl|请你跟我这样过|[]()<br>密码:
 |7.7|穿越康熙|[http://pan.baidu.com/s/1kVNIZOF](http://pan.baidu.com/s/1kVNIZOF)<br>密码:w485|一字千金|[]()<br>密码:
 |7.6|综艺大热门|[http://pan.baidu.com/s/1bTkGTg](http://pan.baidu.com/s/1bTkGTg)<br>密码:pj1a|小明星大跟班|[http://pan.baidu.com/s/1hsz25EG](http://pan.baidu.com/s/1hsz25EG)<br>密码:wdv9
 |7.6|小燕之夜|[http://pan.baidu.com/s/1bpbqmaN](http://pan.baidu.com/s/1bpbqmaN)<br>密码:9diz|大学生了没|[http://pan.baidu.com/s/1bp9Mj1P](http://pan.baidu.com/s/1bp9Mj1P)<br>密码:gnkf
