@@ -16,7 +16,7 @@
 |20160707|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|美凤有约|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|美食好简单|蒜泥白肉茄||[点击播放](http://www.acfun.tv/v/ac2876009)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160707|国光帮帮忙|男子漢育兒術！小孩爸爸帶才是王道 ？！|黃鐙輝、高山峰、Mei、維尼媽、潘維亞、安喬、楊昇達|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160707|国光帮帮忙|男子漢育兒術！小孩爸爸帶才是王道 ？！|黃鐙輝、高山峰、Mei、維尼媽、潘維亞、安喬、楊昇達|[点击播放](http://www.acfun.tv/v/ac2876307)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|爱玩客|彰化|来宾|[点击播放](http://www.acfun.tv/v/ac2876100)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|医师好辣|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|食尚玩家|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
