@@ -5,7 +5,7 @@
 
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160708|综艺大热门|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160708|综艺大热门|BBCall 瓊瑤劇 周慧敏 九零年代都在迷這些玩意！|来宾|[点击播放](http://www.acfun.tv/v/ac2878811)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|小燕之夜|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|大学生了没|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|型男大主厨|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
@@ -15,7 +15,7 @@
 |20160708|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|美凤有约|美鳳趴趴GO 創意蔬食餐廳|樓心潼|[点击播放](http://www.acfun.tv/v/ac2878394)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|美食好简单|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160708|穿越康熙|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160708|穿越康熙|女明星什麼造型都駕馭得了？！|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|综艺大热门|工作出狀況 藝人檯面下的嘴|来宾|[点击播放](http://www.acfun.tv/v/ac2875999)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|小明星大跟班|高手來自民間！這才藝也能揚名國際？！|来宾|[点击播放](http://www.acfun.tv/v/ac2876117)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160707|小燕之夜|結婚對女人的改變！|来宾|[点击播放](http://www.acfun.tv/v/ac2877372)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
