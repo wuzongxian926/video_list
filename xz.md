@@ -27,11 +27,11 @@
 |7.5|小燕之夜|[http://pan.baidu.com/s/1gfflOyf](http://pan.baidu.com/s/1gfflOyf)<br>密码:r7yx|大学生了没|[http://pan.baidu.com/s/1nvB3DaD](http://pan.baidu.com/s/1nvB3DaD)<br>密码:jjoi
 |7.5|型男大主厨|[http://pan.baidu.com/s/1nvlLf9B](http://pan.baidu.com/s/1nvlLf9B)<br>密码:pj7t|女人我最大|[]()<br>密码:
 |7.5|上班这党事|[http://pan.baidu.com/s/1pLb7GPd](http://pan.baidu.com/s/1pLb7GPd)<br>密码:g0ys|2分之一強|[]()<br>密码:
-|7.5|娱乐百分百|[http://pan.baidu.com/s/1nvyCy2P](http://pan.baidu.com/s/1nvyCy2P)<br>密码:422q|美凤有约|[]()<br>密码:
+|7.5|娱乐百分百|[http://pan.baidu.com/s/1nvyCy2P](http://pan.baidu.com/s/1nvyCy2P)<br>密码:422q|美凤有约|[http://pan.baidu.com/s/1bPhcIy](http://pan.baidu.com/s/1bPhcIy)<br>密码:pqho
 |7.5|美食好简单|[]()<br>密码:|国光帮帮忙|[http://pan.baidu.com/s/1jIxw4js](http://pan.baidu.com/s/1jIxw4js)<br>密码:j08n
 |7.5|爱玩客|[http://pan.baidu.com/s/1qXQGo2o](http://pan.baidu.com/s/1qXQGo2o)<br>密码:azf1|医师好辣|[]()<br>密码:
 |7.5|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
-|7.5|穿越康熙|[]()<br>密码:|流行新势力|[]()<br>密码:
+|7.5|穿越康熙|[]()<br>密码:|流行新势力|[http://pan.baidu.com/s/1o7YRXlK](http://pan.baidu.com/s/1o7YRXlK)<br>密码:t24g
 |7.4|综艺大热门|[http://pan.baidu.com/s/1hsM3g24](http://pan.baidu.com/s/1hsM3g24)<br>密码:sjhy|小明星大跟班|[http://pan.baidu.com/s/1o8myZ3c](http://pan.baidu.com/s/1o8myZ3c)<br>密码:eof3
 |7.4|小燕之夜|[http://pan.baidu.com/s/1pKPwybp](http://pan.baidu.com/s/1pKPwybp)<br>密码:qwci|大学生了没|[http://pan.baidu.com/s/1c13yhk0](http://pan.baidu.com/s/1c13yhk0)<br>密码:5zka
 |7.4|型男大主厨|[http://pan.baidu.com/s/1sl1lYQp](http://pan.baidu.com/s/1sl1lYQp)<br>密码:1rda|女人我最大|[http://pan.baidu.com/s/1c1IXkkC](http://pan.baidu.com/s/1c1IXkkC)<br>密码:9iy1
