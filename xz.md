@@ -54,12 +54,12 @@
 |7.2|超级夜总会|[http://pan.baidu.com/s/1bp9gpZp](http://pan.baidu.com/s/1bp9gpZp)<br>密码:sp8a|超爱美小姐|[http://pan.baidu.com/s/1cgceqq](http://pan.baidu.com/s/1cgceqq)<br>密码:3i9g
 |7.2|舞力全开|[http://pan.baidu.com/s/1dFymQv3](http://pan.baidu.com/s/1dFymQv3)<br>密码:ub4v|全民一起来|[]()<br>密码:
 |7.2|娱乐百分百|[]()<br>密码:|大陆寻奇|[http://pan.baidu.com/s/1gfJN3cZ](http://pan.baidu.com/s/1gfJN3cZ)<br>密码:cvju
-|7.1|综艺大热门|[]()<br>密码:|小燕之夜|[]()<br>密码:
-|7.1|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
-|7.1|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
-|7.1|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
+|7.1|综艺大热门|[http://pan.baidu.com/s/1dEY43y5](http://pan.baidu.com/s/1dEY43y5)<br>密码:2bdq|小燕之夜|[http://pan.baidu.com/s/1hr8FUmw](http://pan.baidu.com/s/1hr8FUmw)<br>密码:rlns
+|7.1|大学生了没|[]()<br>密码:|型男大主厨|[http://pan.baidu.com/s/1nuOeLWt](http://pan.baidu.com/s/1nuOeLWt)<br>密码:fpa8
+|7.1|女人我最大|[]()<br>密码:|上班这党事|[http://pan.baidu.com/s/1bpoN7kj](http://pan.baidu.com/s/1bpoN7kj)<br>密码:f3zn
+|7.1|2分之一強|[]()<br>密码:|娱乐百分百|[http://pan.baidu.com/s/1gfLjzov](http://pan.baidu.com/s/1gfLjzov)<br>密码:n7ud
 |7.1|美凤有约|[]()<br>密码:|美食好简单|[]()<br>密码:
-|7.1|穿越康熙|[]()<br>密码:|
+|7.1|穿越康熙|[http://pan.baidu.com/s/1kVRMRn5](http://pan.baidu.com/s/1kVRMRn5)<br>密码:kut5|
 |2016年<br>6月份|综艺大热门|[http://pan.baidu.com/s/1c1PcLrE](http://pan.baidu.com/s/1c1PcLrE)<br>密码:df76|小明星大跟班|[http://pan.baidu.com/s/1bpMDoYj](http://pan.baidu.com/s/1bpMDoYj)<br>密码:oeyl
 |2016年<br>6月份|国光帮帮忙|[http://pan.baidu.com/s/1hrZJZes](http://pan.baidu.com/s/1hrZJZes)<br>密码:ltxd|大学生了没|[http://pan.baidu.com/s/1b4OhmI](http://pan.baidu.com/s/1b4OhmI)<br>密码:m8cg
 |2016年<br>6月份|爱玩客|[http://pan.baidu.com/s/1ckL6H4](http://pan.baidu.com/s/1ckL6H4)<br>密码:gy8s|综艺玩很大|[http://pan.baidu.com/s/1i5O2QMT](http://pan.baidu.com/s/1i5O2QMT)<br>密码:w5d0
