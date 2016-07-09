@@ -47,12 +47,12 @@
 |7.4|爱玩客|[http://pan.baidu.com/s/1qXNs3ow](http://pan.baidu.com/s/1qXNs3ow)<br>密码:6iua|医师好辣|[http://pan.baidu.com/s/1nuIERaD](http://pan.baidu.com/s/1nuIERaD)<br>密码:f4mr
 |7.4|食尚玩家|[http://pan.baidu.com/s/1boTO7Sz](http://pan.baidu.com/s/1boTO7Sz)<br>密码:9e9o|请你跟我这样过|[http://pan.baidu.com/s/1bVm9bS](http://pan.baidu.com/s/1bVm9bS)<br>密码:4zj3
 |7.4|穿越康熙|[http://pan.baidu.com/s/1hs36llq](http://pan.baidu.com/s/1hs36llq)<br>密码:vfn3|
-|7.3|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|7.3|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
+|7.3|名模出任务|[http://pan.baidu.com/s/1pK7LAqv](http://pan.baidu.com/s/1pK7LAqv)<br>密码:mviz|超爱美小姐|[]()<br>密码:
+|7.3|综艺大集合|[http://pan.baidu.com/s/1kUKLakB](http://pan.baidu.com/s/1kUKLakB)<br>密码:gwch|台湾名人堂|[]()<br>密码:
 |7.3|大陆寻奇|[]()<br>密码:|
-|7.2|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
-|7.2|超级夜总会|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|7.2|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
+|7.2|综艺玩很大|[http://pan.baidu.com/s/1cKDA5w](http://pan.baidu.com/s/1cKDA5w)<br>密码:wemh|天才冲冲冲|[http://pan.baidu.com/s/1o8o1hhC](http://pan.baidu.com/s/1o8o1hhC)<br>密码:90d4
+|7.2|超级夜总会|[http://pan.baidu.com/s/1bp9gpZp](http://pan.baidu.com/s/1bp9gpZp)<br>密码:sp8a|超爱美小姐|[http://pan.baidu.com/s/1cgceqq](http://pan.baidu.com/s/1cgceqq)<br>密码:3i9g
+|7.2|舞力全开|[http://pan.baidu.com/s/1dFymQv3](http://pan.baidu.com/s/1dFymQv3)<br>密码:ub4v|全民一起来|[]()<br>密码:
 |7.2|娱乐百分百|[]()<br>密码:|
 |7.1|综艺大热门|[]()<br>密码:|小燕之夜|[]()<br>密码:
 |7.1|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
