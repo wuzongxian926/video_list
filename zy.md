@@ -94,7 +94,7 @@
 |20160703|大陆寻奇|清朝皇室西行記(一) / 冰雪龍江(四)1292|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|综艺玩很大|台湾 嘉义（下）<br>百集巨献|来宾|[点击播放](http://www.acfun.tv/v/ac2865370)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|天才冲冲冲|看你怎么说 & EAR传耳ABC & 接龙Tempo|来宾|[点击播放](http://www.acfun.tv/v/ac2867350)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160702|超级夜总会|松山·慈惠堂|来宾|[点击播放](http://www.acfun.tv/v/ac2863902_5)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160702|超级夜总会|松山·慈惠堂|来宾。|[点击播放](http://www.acfun.tv/v/ac2863902_5)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|超爱美小姐|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|舞力全开|藝人性感熱舞PK賽特別企劃 & 優雅摩登對抗賽特別企劃|来宾|[点击播放](http://www.acfun.tv/v/ac2873366)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|全民一起来|夺宝大作战|来宾|[点击播放](http://www.acfun.tv/v/ac2867350_6)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
