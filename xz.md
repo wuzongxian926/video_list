@@ -1,5 +1,5 @@
 # <div align = center>台湾综艺下载([xz.twzy.tw](http://xz.twzy.tw))</div>
-#### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
+#### <div align = center>台湾综艺频道 ：[twzy.tw](http://twzy.tw)  |  最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
 ##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
@@ -53,7 +53,7 @@
 |7.2|综艺玩很大|[http://pan.baidu.com/s/1cKDA5w](http://pan.baidu.com/s/1cKDA5w)<br>密码:wemh|天才冲冲冲|[http://pan.baidu.com/s/1o8o1hhC](http://pan.baidu.com/s/1o8o1hhC)<br>密码:90d4
 |7.2|超级夜总会|[http://pan.baidu.com/s/1bp9gpZp](http://pan.baidu.com/s/1bp9gpZp)<br>密码:sp8a|超爱美小姐|[http://pan.baidu.com/s/1cgceqq](http://pan.baidu.com/s/1cgceqq)<br>密码:3i9g
 |7.2|舞力全开|[http://pan.baidu.com/s/1dFymQv3](http://pan.baidu.com/s/1dFymQv3)<br>密码:ub4v|全民一起来|[]()<br>密码:
-|7.2|娱乐百分百 |[]()<br>密码:|大陆寻奇|[http://pan.baidu.com/s/1gfJN3cZ](http://pan.baidu.com/s/1gfJN3cZ)<br>密码:cvju
+|7.2|娱乐百分百|[]()<br>密码:|大陆寻奇|[http://pan.baidu.com/s/1gfJN3cZ](http://pan.baidu.com/s/1gfJN3cZ)<br>密码:cvju
 |7.1|综艺大热门|[]()<br>密码:|小燕之夜|[]()<br>密码:
 |7.1|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
 |7.1|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
