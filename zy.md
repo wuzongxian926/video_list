@@ -9,7 +9,7 @@
 |20160708|大学生了没|男大18變|杨奇煜,许皓宜|[点击播放](http://www.acfun.tv/v/ac2880032)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|型男大主厨|狼王子展現基本功料理大賽！|安心亚,张轩睿,陈语安,古斌,主厨:詹姆士,阿基师,吴秉承|[点击播放](http://www.acfun.tv/v/ac2880162)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|女人我最大|我不是難伺候 我只是有原則|唐立淇,陈思璇,陈明真,黄志伟,孙协志,林韦君|[点击播放](http://www.acfun.tv/v/ac2879725)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160708|上班这党事|前女友一直找另一半 煩人舉止該怎麼應對?|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160708|上班这党事|前女友一直找另一半 煩人舉止該怎麼應對?|来宾|[点击播放](http://www.acfun.tv/v/ac2880685)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|2分之一強|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|美凤有约|美鳳趴趴GO 創意蔬食餐廳|樓心潼|[点击播放](http://www.acfun.tv/v/ac2878394)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
