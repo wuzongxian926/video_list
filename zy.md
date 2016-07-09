@@ -99,4 +99,4 @@
 |20160702|舞力全开|藝人性感熱舞PK賽特別企劃 & 優雅摩登對抗賽特別企劃|来宾|[点击播放](http://www.acfun.tv/v/ac2873366)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|全民一起来|夺宝大作战|来宾.|[点击播放](http://www.acfun.tv/v/ac2867350_6)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|娱乐百分百|前进校园大作战 东方工商|来宾|[点击播放](http://www.acfun.tv/v/ac2867350_3)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160702|大陆寻奇||来宾|[点击播放](http://www.acfun.tv/v/ac2880495)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160702|大陆寻奇|文化河北 冰雪龍江(三)1291|来宾|[点击播放](http://www.acfun.tv/v/ac2880495)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
