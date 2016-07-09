@@ -6,9 +6,9 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160708|综艺大热门|BBCall 瓊瑤劇 周慧敏 九零年代都在迷這些玩意！|来宾|[点击播放](http://www.acfun.tv/v/ac2879307)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160708|小燕之夜|兩岸文化真的不一樣！|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160708|大学生了没|男大18變|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160708|型男大主厨|狼王子展現基本功料理大賽！|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160708|小燕之夜|兩岸文化真的不一樣！|来宾|[点击播放](http://www.acfun.tv/v/ac2880119)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160708|大学生了没|男大18變|来宾|[点击播放](http://www.acfun.tv/v/ac2880032)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160708|型男大主厨|狼王子展現基本功料理大賽！|来宾|[点击播放](http://www.acfun.tv/v/ac2880162)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|女人我最大|我不是難伺候 我只是有原則! |来宾|[点击播放](http://www.acfun.tv/v/ac2879725)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|上班这党事|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|2分之一強|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
