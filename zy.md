@@ -2,6 +2,7 @@
 #### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
 ##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
+<div><script src="http://s11.cnzz.com/z_stat.php?id=1259871818&web_id=1259871818" language="JavaScript"></script></div>
 
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
@@ -94,10 +95,9 @@
 |20160703|大陆寻奇|清朝皇室西行記(一) / 冰雪龍江(四)1292|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|综艺玩很大|台湾 嘉义（下）<br>百集巨献|来宾|[点击播放](http://www.acfun.tv/v/ac2865370)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|天才冲冲冲|看你怎么说 & EAR传耳ABC & 接龙Tempo|来宾|[点击播放](http://www.acfun.tv/v/ac2867350)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160702|超级夜总会|松山·慈惠堂|来宾。|[点击播放](http://www.acfun.tv/v/ac2863902_5)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160702|超级夜总会|松山·慈惠堂|来宾|[点击播放](http://www.acfun.tv/v/ac2863902_5)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|超爱美小姐|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|舞力全开|藝人性感熱舞PK賽特別企劃 & 優雅摩登對抗賽特別企劃|来宾|[点击播放](http://www.acfun.tv/v/ac2873366)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|全民一起来|夺宝大作战|来宾|[点击播放](http://www.acfun.tv/v/ac2867350_6)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|娱乐百分百|前进校园大作战 东方工商|来宾|[点击播放](http://www.acfun.tv/v/ac2867350_3)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160702|大陆寻奇||来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-<script src="http://s11.cnzz.com/z_stat.php?id=1259871818&web_id=1259871818" language="JavaScript"></script>
