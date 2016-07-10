@@ -1,10 +1,14 @@
 # <div align = center>《国光帮帮忙》全集</div>
 #### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
-##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
+##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吴宗宪粉丝|台综twzy.tw-QQ群：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/07|男子漢育兒術！小孩爸爸帶才是王道 ？！|黃鐙輝 高山峰 Mei 維尼媽 潘維亞 安喬 楊昇達|[点击播放](http://www.acfun.tv/v/ac2876307)|[网盘下载](http://xz.twzy.tw)
+|2016/7/06|職場新鮮人！！她們開的條件合理嗎？|邵昕 NONO 胡孝诚|[点击播放](http://www.acfun.tv/v/ac2873436)|[网盘下载](http://xz.twzy.tw)
+|2016/7/05|看板美女！！是要我怎麼專心開車？|孙国豪,无尊|[点击播放](http://www.acfun.tv/v/ac2870754_2)|[网盘下载](http://xz.twzy.tw)
+|2016/7/04|最常接觸醉妹的行業！！|林秀琴,班杰|[点击播放](http://www.acfun.tv/v/ac2868057)|[网盘下载](http://xz.twzy.tw)
 |2016/6/30|国光救救我！只要一出国就分手|哈孝远,大根,马太,安苡爱,Ashely,蔡允洁,雨姗|[点击播放](http://www.acfun.tv/v/ac2857774)|[网盘下载](http://xz.twzy.tw)
 |2016/6/29|国光帮歌喉战！超恐惧歌唱大赛！|阿Ben,陈艾琳,朱俐静,黄靖伦,张棋惠,包小松|[点击播放](http://www.acfun.tv/v/ac2857034_3)|[网盘下载](http://xz.twzy.tw)
 |2016/6/28|全球百大美女 她们排名在你意料之外|黄鸿升,地球,康金城,陈艾熙,林茉晶,陈瑀希,拐拐|[点击播放](http://www.acfun.tv/v/ac2852345)|[网盘下载](http://xz.twzy.tw)
