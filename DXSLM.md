@@ -1,10 +1,16 @@
 # <div align = center>《大学生了没》全集</div>
 #### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
-##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
+##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吴宗宪粉丝|台综twzy.tw-QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/08|男大18變|杨奇煜,许皓宜|[点击播放](http://www.acfun.tv/v/ac2880032)|[网盘下载](http://xz.twzy.tw)
+|2016/7/07|同居情侶考驗大會|洪晨颖,石知田,Eason,密丝飘|[点击播放](http://www.acfun.tv/v/ac2877353)|[网盘下载](http://xz.twzy.tw)
+|2016/7/06|腐女是什麼？超強腐女來襲　對BL你了解多少？|黄乔歆 嘻小瓜|[点击播放](http://www.acfun.tv/v/ac2876655_2)|[网盘下载](http://xz.twzy.tw)
+|2016/7/05|大學生明星臉|黄豪平,凯莉|[点击播放](http://www.acfun.tv/v/ac2871855)|[网盘下载](http://xz.twzy.tw)
+|2016/7/04|空服員辛酸史|黄豪平,凯莉|[点击播放](http://www.acfun.tv/v/ac2868990)|[网盘下载](http://xz.twzy.tw)
+|2016/7/01|为什么我们之间有个他？到底是真闺蜜还是另有企图？！|黄豪平,凯莉|[点击播放](http://www.acfun.tv/v/ac2863902_3)|[网盘下载](http://xz.twzy.tw)
 |2016/6/30|爸妈取名请三思！这些名字也太特别了吧！|郑雅匀,李秋娴|[点击播放](http://www.acfun.tv/v/ac2859993)|[网盘下载](http://xz.twzy.tw)
 |2016/6/29|2016 我和本尊一模一样！大学生模仿王挑战赛！！|黄豪平,大根|[点击播放](http://www.acfun.tv/v/ac2857034_6)|[网盘下载](http://xz.twzy.tw)
 |2016/6/28|从卡通走出来的梦幻公主？是真的公主还是公主病？|大学生|[点击播放](http://www.acfun.tv/v/ac2856024_6)|[网盘下载](http://xz.twzy.tw)
