@@ -22,7 +22,7 @@
 |全集|超级夜总会|[http://pan.baidu.com/s/1bRjctS](http://pan.baidu.com/s/1bRjctS)<br>密码:atht|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|GOGO捷运|[http://pan.baidu.com/s/1i4VE4i5](http://pan.baidu.com/s/1i4VE4i5)<br>密码:cw51
 |全集|GoGoTaiwan|[http://pan.baidu.com/s/1gfrxrt5](http://pan.baidu.com/s/1gfrxrt5)<br>密码:nuvh|
-|7.9|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
+|7.9|综艺玩很大|[http://pan.baidu.com/s/1eSz6OuA](http://pan.baidu.com/s/1eSz6OuA)<br>密码:f4hj|天才冲冲冲|[http://pan.baidu.com/s/1boQ1cYz](http://pan.baidu.com/s/1boQ1cYz)<br>密码:b2fh
 |7.9|超级夜总会|[http://pan.baidu.com/s/1eSsfoWE](http://pan.baidu.com/s/1eSsfoWE)<br>密码:a8xn|超爱美小姐|[http://pan.baidu.com/s/1qXC3wxm](http://pan.baidu.com/s/1qXC3wxm)<br>密码:ga0m
 |7.9|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
 |7.9|娱乐百分百|[]()<br>密码:|大陆寻奇|[]()<br>密码:|
