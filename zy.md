@@ -7,7 +7,7 @@
 |20160709|综艺玩很大|日本 犬山|来宾|[点击播放](http://www.acfun.tv/v/ac2881530)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|天才冲冲冲|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|超级夜总会|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
-|20160709|超爱美小姐|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|超爱美小姐|未更新|来宾|[点击播放](http://www.acfun.tv/v/ac2881816)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|舞力全开|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|全民一起来|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
