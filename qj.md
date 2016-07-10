@@ -5,7 +5,7 @@
 
 节目|电视台|在线|下载|节目|电视台|在线|下载
 ----|----|----|----|----|----|----|----
-|综艺大热门|三立都会台<br>周一至周五晚9点|[点击播放](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)|[网盘下载](http://xz.twzy.tw)|小明星大跟班|中天综合台<br>周一至周四晚10点|[点击播放](https://github.com/wuzongxian926/video_list/blob/master/DGB.md)|[网盘下载](http://xz.twzy.tw)
+|综艺大热门|三立都会台<br>周一至周五晚9点|[播放](https://github.com/wuzongxian926/video_list/blob/master/DRM.md)|[网盘](http://xz.twzy.tw)|小明星大跟班|中天综合台<br>周一至周四晚10点|[播放](https://github.com/wuzongxian926/video_list/blob/master/DGB.md)|[网盘](http://xz.twzy.tw)
 |带状|[小燕之夜](https://github.com/wuzongxian926/video_list/blob/master/xyzy.md)|中天综合台<br>周一至周五晚9点|热播|带状|[大学生了没](https://github.com/wuzongxian926/video_list/blob/master/DXSLM.md)|中天综合台<br>周一至周五晚11点|热播
 |带状|[型男大主厨](https://github.com/wuzongxian926/video_list/blob/master/xndzc.md)|三立都会台<br>周一至周五晚7点|热播|带状|[女人我最大](https://github.com/wuzongxian926/video_list/blob/master/nrwzd.md)|TVBS<br>周一至周五晚9点|热播
 |带状|[上班这党事](https://github.com/wuzongxian926/video_list/blob/master/sbzds.md)|TVBS<br>周一至周五晚11点|热播|带状|[2分之一強](https://github.com/wuzongxian926/video_list/blob/master/2fzyq.md)|东森超视<br>周一至周五晚11点|热播
