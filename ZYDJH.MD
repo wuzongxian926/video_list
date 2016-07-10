@@ -1,10 +1,11 @@
 # <div align = center>《综艺大集合》全集</div>
 #### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
-##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吳宗憲全球粉絲/台湾综艺交流QQ群 ：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
+##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吴宗宪粉丝|台综twzy.tw-QQ群：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/03|彰化<br>芬园|余秉谚,蔡坤哲,郭忠佑,<br>安苡爱,VIVI,小晰晰|[点击播放](http://www.acfun.tv/v/ac2866740_7)|[网盘下载](http://xz.twzy.tw)
 |2016/6/26|高雄<br>美浓|马国毕,无尊,赖慧如,<br>江振恺,依依,魏可人,李又汝|[点击播放](http://www.acfun.tv/v/ac2851488)|[网盘下载](http://xz.twzy.tw)
 |2016/6/19|嘉义<br>布袋|江振恺,饼干,小范范,<br>红毛,蔡允洁,黄楚儿,潘映竹|[点击播放](http://www.acfun.tv/v/ac2831255)|[网盘下载](http://xz.twzy.tw)
 |2016/6/12|台中<br>梧栖|阿Ben,撒基努,高凯莉,<br>郭忠佑,恩齐儿,赵孟姿|[点击播放](http://www.acfun.tv/v/ac2813625)|[网盘下载](http://xz.twzy.tw)
