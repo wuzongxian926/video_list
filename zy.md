@@ -4,6 +4,14 @@
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160709|综艺玩很大|日本 犬山|来宾|[点击播放](http://www.acfun.tv/v/ac2881530)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|天才冲冲冲|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|超级夜总会|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|超爱美小姐|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|舞力全开|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|全民一起来|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|大陆寻奇|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|综艺大热门|BBCall 瓊瑤劇 周慧敏 九零年代都在迷這些玩意！|林宥嘉,安苡爱,大根,大恺,香蕉,黄旭,小净,亦帆,成语荞,大飞,阿虎,凯莉,Una,依依|[点击播放](http://www.acfun.tv/v/ac2879307)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|小燕之夜|兩岸文化真的不一樣！|屈中恒,丁乃筝,张本渝,张洛君|[点击播放](http://www.acfun.tv/v/ac2880119)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160708|大学生了没|男大18變|杨奇煜,许皓宜|[点击播放](http://www.acfun.tv/v/ac2880032)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
