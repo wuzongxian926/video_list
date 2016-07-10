@@ -3,14 +3,16 @@
 ##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购  吴宗宪粉丝|台综twzy.tw-QQ群：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
-
-|[综艺玩很大](http://pan.baidu.com/s/1pKUMv5x)|[综艺大热门](http://pan.baidu.com/s/1boQ1c43)
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
-|7.9|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
-*****
-日期|节目|网盘地址|节目|网盘地址
-----|----|----|----|----|----
+|全集|综艺大热门|[http://pan.baidu.com/s/1c2K9CIG](http://pan.baidu.com/s/1c2K9CIG)<br>密码:kym9|小明星大跟班|[http://pan.baidu.com/s/1slvgEGd](http://pan.baidu.com/s/1slvgEGd)<br>密码:d7hr
+|全集|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
+|全集|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|全集|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
+|全集|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
+|全集|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
+|全集|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|全集|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.9|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
 |7.9|超级夜总会|[http://pan.baidu.com/s/1eSsfoWE](http://pan.baidu.com/s/1eSsfoWE)<br>密码:a8xn|超爱美小姐|[http://pan.baidu.com/s/1qXC3wxm](http://pan.baidu.com/s/1qXC3wxm)<br>密码:ga0m
 |7.9|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
