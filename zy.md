@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160709|综艺玩很大|日本犬山（上）|吴宗宪,Kid<br>张勋杰,柯家豪<br>王心恬,花花<br>林千又,邱慧雯<br>阿虎|[点击播放](http://www.acfun.tv/v/ac2883446)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160709|天才冲冲冲|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160709|天才冲冲冲|Where Tempo & EAR传耳ABC & 你是Word演|来宾|[点击播放](http://www.acfun.tv/v/ac2885484)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|超级夜总会|台中·经贸夜市|吴申梅,朱海君<br>翁立友,乔幼<br>阿吉仔|[点击播放](http://www.acfun.tv/v/ac2881834)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|超爱美小姐|时尚巨星日吴思贤|吴思贤,廖允杰<br>夏和熙,宜柏|[点击播放](http://www.acfun.tv/v/ac2881816)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|舞力全开|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
