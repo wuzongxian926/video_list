@@ -4,7 +4,7 @@
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160709|综艺玩很大|日本犬山（上）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2881530)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
+|20160709|综艺玩很大|日本犬山（上）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2883446)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|天才冲冲冲|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|超级夜总会|台中·经贸夜市|吴申梅,朱海君,翁立友,乔幼,阿吉仔|[点击播放](http://www.acfun.tv/v/ac2881834)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
 |20160709|超爱美小姐|时尚巨星日吴思贤|吴思贤,廖允杰,夏和熙,宜柏|[点击播放](http://www.acfun.tv/v/ac2881816)|[网盘下载](http://xz.twzy.tw)|[台综全集](http://qj.twzy.tw)
