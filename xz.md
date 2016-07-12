@@ -21,7 +21,7 @@
 |全集|台湾名人堂|[http://pan.baidu.com/s/1geIRviV](http://pan.baidu.com/s/1geIRviV)<br>密码:fap7|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8
 |全集|超级夜总会|[http://pan.baidu.com/s/1bRjctS](http://pan.baidu.com/s/1bRjctS)<br>密码:atht|GoGoTaiwan|[http://pan.baidu.com/s/1gfrxrt5](http://pan.baidu.com/s/1gfrxrt5)<br>密码:nuvh
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
-|全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df
+|全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |7.11|综艺大热门|[http://pan.baidu.com/s/1hsudjBA](http://pan.baidu.com/s/1hsudjBA)<br>密码:u5os|小明星大跟班|[]()<br>密码:
 |7.11|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
 |7.11|型男大主厨|[http://pan.baidu.com/s/1boEpR1H](http://pan.baidu.com/s/1boEpR1H)<br>密码:wsu2|女人我最大|[]()<br>密码:

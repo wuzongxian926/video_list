@@ -22,4 +22,5 @@
 |超级夜总会|三立台湾台<br>每周六晚6:30|[播放](https://github.com/wuzongxian926/video_list/blob/master/CJYZH.MD)|[网盘](http://xz.twzy.tw)|GOGO捷运|民视无线台<br>周日午14:00|[播放](https://github.com/wuzongxian926/video_list/blob/master/ggjy.md)|[网盘](http://xz.twzy.tw)
 |正妹讚出來|台湾电视台<br>每周三晚10点|[播放](https://github.com/wuzongxian926/video_list/blob/master/zmzcl.md)|[网盘](http://xz.twzy.tw)|一字千金|公共电视台<br>每周四晚9点|[播放](https://github.com/wuzongxian926/video_list/blob/master/yzqj.md)|[网盘](http://xz.twzy.tw)
 |私房话老实说|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/sfhlss.md)|[网盘](http://xz.twzy.tw)|青春星主播|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|[网盘](http://xz.twzy.tw)
+|完全娱乐|三立都会台<br>周一至周五晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/wqyl.md)|[网盘](http://xz.twzy.tw)
 
