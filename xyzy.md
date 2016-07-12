@@ -12,3 +12,7 @@
 |2016/7/05|女人的改變！|于美人,佩甄,何妤玟,陈珮骐|[点击播放](http://www.acfun.tv/v/ac2871806)|[网盘下载](http://xz.twzy.tw)
 |2016/7/04|聚會千萬別做這些事！|小甜甜,周宜霈,黄乔歆,哈孝远,詹惟中|[点击播放](http://www.acfun.tv/v/ac2869289)|[网盘下载](http://xz.twzy.tw)
 |2016/7/01|讓媽媽頭痛的暑假到了！|佩甄,甄莉,Mei,张旭岚|[点击播放](http://www.acfun.tv/v/ac2863902_4)|[网盘下载](http://xz.twzy.tw)
+|2016/6/29|经典必唱 男人歌！|阳帆,黄品源,Julie|[点击播放](http://www.acfun.tv/v/ac2856861)|[网盘下载](http://xz.twzy.tw)
+|2016/6/28|全民疯健身！小心！别变成健身房讨厌鬼！|Vicky,小祯,杨奇煜,大恺,Hero祖雄,蕾安|[点击播放](http://www.acfun.tv/v/ac2856024_7)|[网盘下载](http://xz.twzy.tw)
+|2016/6/27|天啊！为什么我总是存不到钱？|Junior,Eason,张艾亚,大根,叶小绮,郭俊宏|[点击播放](http://www.acfun.tv/v/ac2850831)|[网盘下载](http://xz.twzy.tw)
+|2016/6/24|星光大道下的秘密！|杨千霈,Dennis,梁赫群,唐从圣|[点击播放](http://www.acfun.tv/v/ac2849683)|[网盘下载](http://xz.twzy.tw)
