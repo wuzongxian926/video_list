@@ -23,10 +23,10 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |7.11|综艺大热门|[http://pan.baidu.com/s/1hsudjBA](http://pan.baidu.com/s/1hsudjBA)<br>密码:u5os|小明星大跟班|[http://pan.baidu.com/s/1mi6Mm9a](http://pan.baidu.com/s/1mi6Mm9a)<br>密码:fayi
-|7.11|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
+|7.11|小燕之夜|[http://pan.baidu.com/s/1o80C71o](http://pan.baidu.com/s/1o80C71o)<br>密码:fdj2|大学生了没|[http://pan.baidu.com/s/1slmtrop](http://pan.baidu.com/s/1slmtrop)<br>密码:ne01
 |7.11|型男大主厨|[http://pan.baidu.com/s/1boEpR1H](http://pan.baidu.com/s/1boEpR1H)<br>密码:wsu2|女人我最大|[http://pan.baidu.com/s/1c2x9gDa](http://pan.baidu.com/s/1c2x9gDa)<br>密码:3454
 |7.11|上班这党事|[http://pan.baidu.com/s/1pLfBLG3](http://pan.baidu.com/s/1pLfBLG3)<br>密码:8hxj|2分之一強|[]()<br>密码:
-|7.11|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
+|7.11|娱乐百分百|[http://pan.baidu.com/s/1hsqFyL2](http://pan.baidu.com/s/1hsqFyL2)<br>密码:jc6z|美凤有约|[]()<br>密码:
 |7.11|美食好简单|[http://pan.baidu.com/s/1bU6U2y](http://pan.baidu.com/s/1bU6U2y)<br>密码:xxvd|国光帮帮忙|[http://pan.baidu.com/s/1i4XG0LZ](http://pan.baidu.com/s/1i4XG0LZ)<br>密码:swtb
 |7.11|爱玩客|[http://pan.baidu.com/s/1eS6s4lO](http://pan.baidu.com/s/1eS6s4lO)<br>密码:5s8p|医师好辣|[http://pan.baidu.com/s/1cIBXJS](http://pan.baidu.com/s/1cIBXJS)<br>密码:uztv
 |7.11|食尚玩家|[http://pan.baidu.com/s/1mifbTjU](http://pan.baidu.com/s/1mifbTjU)<br>密码:qxdm|请你跟我这样过|[]()<br>密码:
@@ -37,7 +37,7 @@
 |7.10|GoGoTaiwan|[http://pan.baidu.com/s/1eSDef0u](http://pan.baidu.com/s/1eSDef0u)<br>密码:fsp8
 |7.9|综艺玩很大|[http://pan.baidu.com/s/1eSz6OuA](http://pan.baidu.com/s/1eSz6OuA)<br>密码:f4hj|天才冲冲冲|[http://pan.baidu.com/s/1boQ1cYz](http://pan.baidu.com/s/1boQ1cYz)<br>密码:b2fh
 |7.9|超级夜总会|[http://pan.baidu.com/s/1eSsfoWE](http://pan.baidu.com/s/1eSsfoWE)<br>密码:a8xn|超爱美小姐|[http://pan.baidu.com/s/1qXC3wxm](http://pan.baidu.com/s/1qXC3wxm)<br>密码:ga0m
-|7.9|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
+|7.9|舞力全开|[]()<br>密码:|全民一起来|[http://pan.baidu.com/s/1c22sOfe](http://pan.baidu.com/s/1c22sOfe)<br>密码:0sv7
 |7.9|娱乐百分百|[http://pan.baidu.com/s/1o8gtICa](http://pan.baidu.com/s/1o8gtICa)<br>密码:w89y|大陆寻奇|[]()<br>密码:|
 |7.8|综艺大热门|[http://pan.baidu.com/s/1slEdyVz](http://pan.baidu.com/s/1slEdyVz)<br>密码:3ng2|小燕之夜|[http://pan.baidu.com/s/1eRVeBjO](http://pan.baidu.com/s/1eRVeBjO)<br>密码:zi8d
 |7.8|大学生了没|[http://pan.baidu.com/s/1pLF30jp](http://pan.baidu.com/s/1pLF30jp)<br>密码:zhiq|型男大主厨|[http://pan.baidu.com/s/1slpaV3R](http://pan.baidu.com/s/1slpaV3R)<br>密码:chk6
