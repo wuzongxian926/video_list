@@ -7,7 +7,7 @@
 |20160711|综艺大热门|假如可以交換藝人的時間！！你想怎麼用？|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|小明星大跟班|補教名師大對決|小钟,赵正平,黄豪平|[点击播放](http://www.acfun.tv/v/ac2886769)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|小燕之夜|瘋狂校園遊戲！|黄鸿升,王心凌,马如龙,王乐妍,拐拐|[点击播放](http://www.acfun.tv/v/ac2888064)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160711|大学生了没|全台女校花之花大集合|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160711|大学生了没|全台女校花之花大集合|小甜甜,马念先,大文|[点击播放](http://www.acfun.tv/v/ac2888176)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|型男大主厨|小孩說了算料理大賽！！|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|女人我最大|天氣那麼熱！學會這招就能涼爽過夏天|吴依霖,小布,赖薇如,洪棠,夏宇童,芳瑜,陈薇,汪诗敏|[点击播放](http://www.acfun.tv/v/ac2887638)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|上班这党事|親友吃飯竟有些怪習慣 該怎麼應對才是好招?! |韦汝,沈玉琳,Apple,Sam|[点击播放](http://www.acfun.tv/v/ac2887656)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
