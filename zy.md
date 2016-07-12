@@ -12,7 +12,7 @@
 |20160711|女人我最大|天氣那麼熱！學會這招就能涼爽過夏天|吴依霖,小布,赖薇如,洪棠,夏宇童,芳瑜,陈薇,汪诗敏|[点击播放](http://www.acfun.tv/v/ac2887638)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|上班这党事|親友吃飯竟有些怪習慣 該怎麼應對才是好招?! |韦汝,沈玉琳,Apple,Sam|[点击播放](http://www.acfun.tv/v/ac2887656)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|2分之一強|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160711|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160711|娱乐百分百|百分百游戏王|小猪,恺乐,黄沐妍,饼干,Kid,李洛洋,安唯绫,李懿|[点击播放](http://www.acfun.tv/v/ac2888405)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|美凤有约|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|美食好简单|四季龍筋|温国智|[点击播放](http://www.acfun.tv/v/ac2886778)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|国光帮帮忙|女人們！怎樣才是妳認為的不兇？|哈孝远,吴凤,徐展元,马太,夏宇童,钡钡,林雨葶,Uyi,朱咩,依依|[点击播放](http://www.acfun.tv/v/ac2886789)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
