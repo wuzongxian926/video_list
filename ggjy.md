@@ -6,3 +6,11 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/7/10|板南線-市政府站|来宾|[点击播放](http://www.acfun.tv/v/ac2886915)|[网盘下载](http://xz.twzy.tw)
+|2016/7/03|淡水信義線-石牌站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_8)|[网盘下载](http://xz.twzy.tw)
+|2016/6/26|中和新蘆線-蘆洲站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_9)|[网盘下载](http://xz.twzy.tw)
+|2016/6/19|板南線-忠孝敦化站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_10)|[网盘下载](http://xz.twzy.tw)
+|2016/6/12|板南線-西門站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_11)|[网盘下载](http://xz.twzy.tw)
+|2016/6/05|文湖線-麟光站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_12)|[网盘下载](http://xz.twzy.tw)
+|2016/5/29|松山新店線-小巨蛋站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_13)|[网盘下载](http://xz.twzy.tw)
+|2016/5/22|淡水信義線-芝山站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_14)|[网盘下载](http://xz.twzy.tw)
+|2016/5/15|淡水信義線-竹圍站|来宾|[点击播放](http://www.acfun.tv/v/ac2866740_15)|[网盘下载](http://xz.twzy.tw)
