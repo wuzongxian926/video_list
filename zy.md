@@ -33,7 +33,7 @@
 |20160709|超级夜总会|台中·经贸夜市|吴申梅,朱海君<br>翁立友,乔幼<br>阿吉仔|[点击播放](http://www.acfun.tv/v/ac2881834)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|超爱美小姐|时尚巨星日吴思贤|吴思贤,廖允杰<br>夏和熙,宜柏|[点击播放](http://www.acfun.tv/v/ac2881816)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|舞力全开|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160709|全民一起来|夺宝大作战|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160709|全民一起来|夺宝大作战|沈玉琳,潘若迪,阿喜,刘雨柔,班杰,大根|[点击播放](http://www.acfun.tv/v/ac2888239)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|娱乐百分百|陳大天明星好麻吉|小猪,威廉,陈大天,张立东,李唯枫|[点击播放](http://www.acfun.tv/v/ac2886993)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|大陆寻奇|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160708|综艺大热门|BBCall 瓊瑤劇 周慧敏 九零年代都在迷這些玩意！|林宥嘉,安苡爱<br>大根,大恺<br>香蕉,黄旭<br>小净,亦帆<br>成语荞,大飞<br>阿虎,凯莉<br>Una,依依|[点击播放](http://www.acfun.tv/v/ac2879307)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
