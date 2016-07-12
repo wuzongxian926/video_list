@@ -22,7 +22,7 @@
 |20160712|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|穿越康熙|他們的另一個身分是畫家|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|流行新势力|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160711|综艺大热门|假如可以交換藝人的時間！！你想怎麼用？|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160711|综艺大热门|假如可以交換藝人的時間！！你想怎麼用？|邰智源,大根,许维恩,成语荞|[点击播放](http://www.acfun.tv/v/ac2888614)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|小明星大跟班|補教名師大對決|小钟,赵正平,黄豪平|[点击播放](http://www.acfun.tv/v/ac2886769)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|小燕之夜|瘋狂校園遊戲！|黄鸿升,王心凌,马如龙,王乐妍,拐拐|[点击播放](http://www.acfun.tv/v/ac2888064)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|大学生了没|全台女校花之花大集合|小甜甜,马念先,大文|[点击播放](http://www.acfun.tv/v/ac2888176)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
