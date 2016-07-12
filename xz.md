@@ -22,9 +22,9 @@
 |全集|超级夜总会|[http://pan.baidu.com/s/1bRjctS](http://pan.baidu.com/s/1bRjctS)<br>密码:atht|GoGoTaiwan|[http://pan.baidu.com/s/1gfrxrt5](http://pan.baidu.com/s/1gfrxrt5)<br>密码:nuvh
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df
-|7.11|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
+|7.11|综艺大热门|[http://pan.baidu.com/s/1hsudjBA](http://pan.baidu.com/s/1hsudjBA)<br>密码:u5os|小明星大跟班|[]()<br>密码:
 |7.11|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.11|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|7.11|型男大主厨|[http://pan.baidu.com/s/1boEpR1H](http://pan.baidu.com/s/1boEpR1H)<br>密码:wsu2|女人我最大|[]()<br>密码:
 |7.11|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.11|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |7.11|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
@@ -32,9 +32,9 @@
 |7.11|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.11|穿越康熙|[]()<br>密码:|
 |7.10|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|7.10|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
-|7.10|大陆寻奇|[]()<br>密码:|GOGO捷运|[]()<br>密码:
-|7.10|GoGoTaiwan|[]()<br>密码:|
+|7.10|综艺大集合|[http://pan.baidu.com/s/1slu0J2t](http://pan.baidu.com/s/1slu0J2t)<br>密码:j98v|台湾名人堂|[]()<br>密码:
+|7.10|大陆寻奇|[]()<br>密码:|GOGO捷运|[http://pan.baidu.com/s/1kVcwizH](http://pan.baidu.com/s/1kVcwizH)<br>密码:779z
+|7.10|GoGoTaiwan|[http://pan.baidu.com/s/1eSDef0u](http://pan.baidu.com/s/1eSDef0u)<br>密码:fsp8
 |7.9|综艺玩很大|[http://pan.baidu.com/s/1eSz6OuA](http://pan.baidu.com/s/1eSz6OuA)<br>密码:f4hj|天才冲冲冲|[http://pan.baidu.com/s/1boQ1cYz](http://pan.baidu.com/s/1boQ1cYz)<br>密码:b2fh
 |7.9|超级夜总会|[http://pan.baidu.com/s/1eSsfoWE](http://pan.baidu.com/s/1eSsfoWE)<br>密码:a8xn|超爱美小姐|[http://pan.baidu.com/s/1qXC3wxm](http://pan.baidu.com/s/1qXC3wxm)<br>密码:ga0m
 |7.9|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
