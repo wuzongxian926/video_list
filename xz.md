@@ -38,7 +38,7 @@
 |7.11|娱乐百分百|[http://pan.baidu.com/s/1hsqFyL2](http://pan.baidu.com/s/1hsqFyL2)<br>密码:jc6z|美凤有约|[]()<br>密码:
 |7.11|美食好简单|[http://pan.baidu.com/s/1bU6U2y](http://pan.baidu.com/s/1bU6U2y)<br>密码:xxvd|国光帮帮忙|[http://pan.baidu.com/s/1i4XG0LZ](http://pan.baidu.com/s/1i4XG0LZ)<br>密码:swtb
 |7.11|爱玩客|[http://pan.baidu.com/s/1eS6s4lO](http://pan.baidu.com/s/1eS6s4lO)<br>密码:5s8p|医师好辣|[http://pan.baidu.com/s/1cIBXJS](http://pan.baidu.com/s/1cIBXJS)<br>密码:uztv
-|7.11|食尚玩家|[http://pan.baidu.com/s/1mifbTjU](http://pan.baidu.com/s/1mifbTjU)<br>密码:qxdm|请你跟我这样过|[]()<br>密码:
+|7.11|食尚玩家|[http://pan.baidu.com/s/1mifbTjU](http://pan.baidu.com/s/1mifbTjU)<br>密码:qxdm|请你跟我这样过|[http://pan.baidu.com/s/1pLGP73H](http://pan.baidu.com/s/1pLGP73H)<br>密码:kx79
 |7.11|穿越康熙|[http://pan.baidu.com/s/1nvIV1YL](http://pan.baidu.com/s/1nvIV1YL)<br>密码:1h2e
 |7.10|名模出任务|[http://pan.baidu.com/s/1dFHjRjF](http://pan.baidu.com/s/1dFHjRjF)<br>密码:4rua|超爱美小姐|[]()<br>密码:
 |7.10|综艺大集合|[http://pan.baidu.com/s/1slu0J2t](http://pan.baidu.com/s/1slu0J2t)<br>密码:j98v|台湾名人堂|[]()<br>密码:
