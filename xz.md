@@ -30,7 +30,7 @@
 |7.13|美食好简单|[http://pan.baidu.com/s/1geZM635](http://pan.baidu.com/s/1geZM635)<br>密码:h6hh|国光帮帮忙|[]()<br>密码:
 |7.13|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
 |7.13|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
-|7.13|穿越康熙|[]()<br>密码:|大陆寻奇|[]()<br>密码:|
+|7.13|穿越康熙|[http://pan.baidu.com/s/1kUOPcfP](http://pan.baidu.com/s/1kUOPcfP)<br>密码:9sur|大陆寻奇|[]()<br>密码:|
 |7.12|综艺大热门|[http://pan.baidu.com/s/1sl5WhkT](http://pan.baidu.com/s/1sl5WhkT)<br>密码:47cp|小明星大跟班|[http://pan.baidu.com/s/1hsbMuJq](http://pan.baidu.com/s/1hsbMuJq)<br>密码:0vsl
 |7.12|小燕之夜|[http://pan.baidu.com/s/1o7UiAt8](http://pan.baidu.com/s/1o7UiAt8)<br>密码:qlnp|大学生了没|[http://pan.baidu.com/s/1eSnvF1K](http://pan.baidu.com/s/1eSnvF1K)<br>密码:qtdw
 |7.12|型男大主厨|[http://pan.baidu.com/s/1pLjF5mb](http://pan.baidu.com/s/1pLjF5mb)<br>密码:m5hb|女人我最大|[http://pan.baidu.com/s/1eShWbTK](http://pan.baidu.com/s/1eShWbTK)<br>密码:2r9y
