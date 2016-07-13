@@ -14,7 +14,7 @@
 |20160713|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|美凤有约|美鳳上菜 牛蒡蒜頭雞湯、銷魂臘味飯|蔡萬利、雅美將|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160713|美食好简单|蔥薑泥雞|来宾|[点击播放](http://www.acfun.tv/v/ac2890467)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160713|美食好简单|蔥薑泥雞|温国智,老王|[点击播放](http://www.acfun.tv/v/ac2890467)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|国光帮帮忙|在男人面前！女人絕對不會聊這些事！|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|爱玩客|泰國 曼谷 普吉島 Follow 女神！Follow me，祕境美景，天堂的島|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
