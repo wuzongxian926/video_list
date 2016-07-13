@@ -24,9 +24,9 @@
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |7.13|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
 |7.13|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.13|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|7.13|型男大主厨|[http://pan.baidu.com/s/1mixYQzm](http://pan.baidu.com/s/1mixYQzm)<br>密码:ouct|女人我最大|[]()<br>密码:
 |7.13|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
-|7.13|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
+|7.13|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1b0eQEq](http://pan.baidu.com/s/1b0eQEq)<br>密码:5mll
 |7.13|美食好简单|[http://pan.baidu.com/s/1geZM635](http://pan.baidu.com/s/1geZM635)<br>密码:h6hh|国光帮帮忙|[]()<br>密码:
 |7.13|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
 |7.13|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
@@ -39,7 +39,7 @@
 |7.12|美食好简单|[http://pan.baidu.com/s/1cwrs30](http://pan.baidu.com/s/1cwrs30)<br>密码:4hv5|国光帮帮忙|[http://pan.baidu.com/s/1nuOeXw1](http://pan.baidu.com/s/1nuOeXw1)<br>密码:vo03
 |7.12|爱玩客|[http://pan.baidu.com/s/1gfkBPQj](http://pan.baidu.com/s/1gfkBPQj)<br>密码:jznc|医师好辣|[http://pan.baidu.com/s/1mi72n9m](http://pan.baidu.com/s/1mi72n9m)<br>密码:937g
 |7.12|食尚玩家|[http://pan.baidu.com/s/1c2kbXUK](http://pan.baidu.com/s/1c2kbXUK)<br>密码:0d01|请你跟我这样过|[]()<br>密码:
-|7.12|穿越康熙|[http://pan.baidu.com/s/1bXUMKm](http://pan.baidu.com/s/1bXUMKm)<br>密码:gqfq|流行新势力|[]()<br>密码:
+|7.12|穿越康熙|[http://pan.baidu.com/s/1bXUMKm](http://pan.baidu.com/s/1bXUMKm)<br>密码:gqfq|流行新势力|[http://pan.baidu.com/s/1hrOVhVu](http://pan.baidu.com/s/1hrOVhVu)<br>密码:28yu
 |7.11|综艺大热门|[http://pan.baidu.com/s/1hsudjBA](http://pan.baidu.com/s/1hsudjBA)<br>密码:u5os|小明星大跟班|[http://pan.baidu.com/s/1mi6Mm9a](http://pan.baidu.com/s/1mi6Mm9a)<br>密码:fayi
 |7.11|小燕之夜|[http://pan.baidu.com/s/1o80C71o](http://pan.baidu.com/s/1o80C71o)<br>密码:fdj2|大学生了没|[http://pan.baidu.com/s/1slmtrop](http://pan.baidu.com/s/1slmtrop)<br>密码:ne01
 |7.11|型男大主厨|[http://pan.baidu.com/s/1boEpR1H](http://pan.baidu.com/s/1boEpR1H)<br>密码:wsu2|女人我最大|[http://pan.baidu.com/s/1c2x9gDa](http://pan.baidu.com/s/1c2x9gDa)<br>密码:3454
