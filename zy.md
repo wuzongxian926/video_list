@@ -37,7 +37,7 @@
 |20160711|爱玩客|神迹打进击！跟着列车找好运|小钟,鲔鱼,臧芮轩|[点击播放](http://www.acfun.tv/v/ac2888715)|[全集](http://qj.twzy.tw)
 |20160711|医师好辣|什麼！醫院也有這種白目隊友？！|Vicky,阿Ben,温翠苹|[点击播放](http://www.acfun.tv/v/ac2887664)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|食尚玩家|基隆不去会后悔！没有小吃的超好吃美食！|黄镫辉,曾子余|[点击播放](http://www.acfun.tv/v/ac2887735)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160711|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160711|请你跟<br>我这样过|不甜酒没糖？！隐形糖更伤身？！|洪都拉斯,小优,张文绮,专家:洪永祥,李婉萍,王明勇|[点击播放](http://www.acfun.tv/v/ac2889884)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160711|穿越康熙|戲劇就是要入戲越深越好？！|来宾|[点击播放](http://www.acfun.tv/v/ac2886803)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|名模出任务|夏天就是要玩水啊|沈玉琳,李懿,成语荞,IKEA,黄志玮,李沛旭,陈思璇,大恺,曾智希,裴颉|[点击播放](http://www.acfun.tv/v/ac2888722)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|超爱美小姐|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
