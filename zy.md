@@ -17,7 +17,7 @@
 |20160712|美食好简单|蜆精娃娃菜|温国智|[点击播放](http://www.acfun.tv/v/ac2889570)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|国光帮帮忙|女孩遇到水！她們的工作都好涼！！|博焱,史丹利,林群峰|[点击播放](http://www.acfun.tv/v/ac2889363)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|爱玩客|韓國 首爾 絕了！老詹也讚嘆，韓食先鋒隊，韓式料理再創新，無法想像的韓食新花樣|詹姆士,雷瑟琳|[点击播放](http://www.acfun.tv/v/ac2889329)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160712|医师好辣|醫師教你3招變女神？！|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160712|医师好辣|醫師教你3招變女神？！|赖薇如,冯媛甄,廖家仪|[点击播放](http://www.acfun.tv/v/ac2890293)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|食尚玩家|限時大考驗 新竹圓夢美食計畫|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|穿越康熙|他們的另一個身分是畫家|来宾|[点击播放](http://www.acfun.tv/v/ac2888573)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
