@@ -6,7 +6,7 @@
 ----|----|----|----|----|----|----
 |20160713|综艺大热门|你比你的朋友還沒有明星味|詹子晴,杨雅筑,夏和熙,小小瑜,徐玮吟,Ada,郑凯欣,张龄予,阿乐,郑乔尹|[点击播放](http://www.acfun.tv/v/ac2892058)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|小明星大跟班|你不知道的毛小孩危機！恐怖寵物醫學大公開！|惟毅,辜莞允,贝童彤,夏宇童,詹惟中,许志全(兽医师),小善(宠物行为训练师),艾尔芙(宠物沟通师)|[点击播放](http://www.acfun.tv/v/ac2892063)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160713|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160713|小燕之夜|失恋的一百个样子！|曲家瑞,陈大天,纪言恺,吴思贤,黄靖伦,黄荻钧|[点击播放](http://www.acfun.tv/v/ac2893946)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|大学生了没|網路購物陷阱|玛莉亚,其芳(购物专家)|[点击播放](http://www.acfun.tv/v/ac2893141)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|型男大主厨|料理高手超级障碍挑战赛：都是一家人+海鲜翡翠 & XO酱海鲜炒面|金智娟,王梦麟,主厨:阿基师,詹姆士,郭主义,吴秉承|[点击播放](http://www.acfun.tv/v/ac2893106)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|女人我最大|暑假到了! 出遊也能美美的|Kevin,韦汝,Christine,李妍憬,成语荞|[点击播放](http://www.acfun.tv/v/ac2893342)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -61,7 +61,7 @@
 |20160710|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|综艺大集合|桃園<br>平鎮|红毛,曹育豪,郭婷筠,LOOK,常立琳,黄沐妍|[点击播放](http://www.acfun.tv/v/ac2886931)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|台湾名人堂||来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160710|大陆寻奇|清朝皇室西行記(一) / 冰雪龍江(四)|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160710|大陆寻奇|清朝皇室西行記(一) / 冰雪龍江(四)|来宾|[点击播放](http://www.acfun.tv/v/ac2893841)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|GOGO捷运|板南線-市政府站|来宾|[点击播放](http://www.acfun.tv/v/ac2886915)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|GoGoTaiwan|彰化田中 路跑尋米小旅行|来宾|[点击播放](http://www.acfun.tv/v/ac2886908)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160709|综艺玩很大|日本犬山（上）|吴宗宪,Kid<br>张勋杰,柯家豪<br>王心恬,花花<br>林千又,邱慧雯<br>阿虎|[点击播放](http://www.acfun.tv/v/ac2883446)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
