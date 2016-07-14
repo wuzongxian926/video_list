@@ -4,6 +4,23 @@
 <div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160714|综艺大热门|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|小明星大跟班|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|小燕之夜|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|大学生了没|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|型男大主厨|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|女人我最大|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|上班这党事|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|2分之一強|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|娱乐百分百|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|美凤有约|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|美食好简单|義式焗杏鮑菇|温国智|[点击播放](http://www.acfun.tv/v/ac2894331)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|国光帮帮忙|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|爱玩客|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|医师好辣|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|食尚玩家|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|穿越康熙|開運招財桃花來|来宾|[点击播放](http://www.acfun.tv/v/ac2894244)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|综艺大热门|你比你的朋友還沒有明星味|詹子晴,杨雅筑,夏和熙,小小瑜,徐玮吟,Ada,郑凯欣,张龄予,阿乐,郑乔尹|[点击播放](http://www.acfun.tv/v/ac2892058)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|小明星大跟班|你不知道的毛小孩危機！恐怖寵物醫學大公開！|惟毅,辜莞允,贝童彤,夏宇童,詹惟中,许志全(兽医师),小善(宠物行为训练师),艾尔芙(宠物沟通师)|[点击播放](http://www.acfun.tv/v/ac2892063)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|小燕之夜|失恋的一百个样子！|曲家瑞,陈大天,纪言恺,吴思贤,黄靖伦,黄荻钧|[点击播放](http://www.acfun.tv/v/ac2893946)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
