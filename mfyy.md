@@ -5,7 +5,9 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/14|美鳳上菜 五行蔬菜飯、泰王四神湯、梅香杏菇灣姿月|来宾|[点击播放](http://www.acfun.tv/v/ac2895002)|[网盘下载](http://xz.twzy.tw)
 |2016/7/13|美鳳上菜 牛蒡蒜頭雞湯、銷魂臘味飯|蔡萬利、雅美將|[点击播放](http://www.acfun.tv/v/ac2891978)|[网盘下载](http://xz.twzy.tw)
+|2016/7/12|白皙一夏 惱人油光不要來|来宾|[点击播放](http://www.acfun.tv/v/ac2895006)|[网盘下载](http://xz.twzy.tw)
 |2016/7/08|美鳳趴趴GO 創意蔬食餐廳|樓心潼|[点击播放](http://www.acfun.tv/v/ac2878394)|[网盘下载](http://xz.twzy.tw)
 |2016/7/06|頭皮深層養護 對症養髮不掉髮|夏宇童 張克帆|[点击播放](http://www.acfun.tv/v/ac2872251)|[网盘下载](http://xz.twzy.tw)
 |2016/7/05|番茄肉末家常麵|陈为民,林姿佑|[点击播放](http://www.acfun.tv/v/ac2877282_2)|[网盘下载](http://xz.twzy.tw)

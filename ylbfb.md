@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/13|LIVE直播|来宾|[点击播放](http://www.acfun.tv/v/ac2895017)|[网盘下载](http://xz.twzy.tw)
 |2016/7/12|百分百LIVE|恺乐,Wish,Masha,Erika|[点击播放](http://www.acfun.tv/v/ac2890491)|[网盘下载](http://xz.twzy.tw)
 |2016/7/11|百分百游戏王|小猪,恺乐,黄沐妍,饼干,Kid,李洛洋,安唯绫,李懿|[点击播放](http://www.acfun.tv/v/ac2888405)|[网盘下载](http://xz.twzy.tw)
 |2016/7/09|陳大天明星好麻吉|小猪,威廉,陈大天,张立东,李唯枫|[点击播放](http://www.acfun.tv/v/ac2886993)|[网盘下载](http://xz.twzy.tw)
