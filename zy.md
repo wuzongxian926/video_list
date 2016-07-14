@@ -46,7 +46,7 @@
 |20160712|型男大主厨|蕉奶霸主破百保衛戰！！|卓文萱,陈大天,吴凤,主厨:吴秉承,詹姆士,阿基师|[点击播放](http://www.acfun.tv/v/ac2889269)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|女人我最大|时尚、阿桑一线之隔 穿对才能真正驾驭时尚！|佑群,林叶亭,王以路,萱瑜,汪诗敏,甄莉,崔佩仪,Christine|[点击播放](http://www.acfun.tv/v/ac2890516)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|上班这党事|女孩兒就有這些尷尬 丟臉狀況該怎麼面對？！|刘雨柔,吕文婉,卢燕俐,林萃芬|[点击播放](http://www.acfun.tv/v/ac2890198)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160712|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160712|2分之一強|越愛妳 越要隱瞞妳？！ 男人秘密有夠多？！|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|娱乐百分百|百分百LIVE|恺乐,Wish,Masha,Erika|[点击播放](http://www.acfun.tv/v/ac2890491)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|美凤有约|白皙一夏 惱人油光不要來|来宾|[点击播放](http://www.acfun.tv/v/ac2895006)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160712|美食好简单|蜆精娃娃菜|温国智|[点击播放](http://www.acfun.tv/v/ac2889570)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

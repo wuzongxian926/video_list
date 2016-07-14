@@ -24,7 +24,7 @@
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |7.14|综艺大热门|[http://pan.baidu.com/s/1eRY2Hyi](http://pan.baidu.com/s/1eRY2Hyi)<br>密码:x5h2|小明星大跟班|[http://pan.baidu.com/s/1boB8psj](http://pan.baidu.com/s/1boB8psj)<br>密码:k4n0
 |7.14|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.14|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|7.14|型男大主厨|[http://pan.baidu.com/s/1sl1S1Kp](http://pan.baidu.com/s/1sl1S1Kp)<br>密码:7pd7|女人我最大|[]()<br>密码:
 |7.14|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.14|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1kUGHCm7](http://pan.baidu.com/s/1kUGHCm7)<br>密码:5meq
 |7.14|美食好简单|[http://pan.baidu.com/s/1qYgpPvA](http://pan.baidu.com/s/1qYgpPvA)<br>密码:h22v|国光帮帮忙|[]()<br>密码:
