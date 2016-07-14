@@ -8,7 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
-|2016/7/13|你比你的朋友還沒有明星味|来宾|[点击播放](http://www.acfun.tv/v/ac2892058)|[网盘](http://xz.twzy.tw)
+|2016/7/13|你比你的朋友還沒有明星味|詹子晴,杨雅筑,夏和熙,小小瑜,徐玮吟,Ada,郑凯欣,张龄予,阿乐,郑乔尹|[点击播放](http://www.acfun.tv/v/ac2892058)|[网盘](http://xz.twzy.tw)
 |2016/7/12|這些劇讓我哭讓我笑! 讓我夜夜不睡覺!|陈洁仪,Erika,大卫萧,吴申梅,周定纬,沈志方,利得汇,何美,大飞,阿虎,大根,黄豪平,大恺|[播放](http://www.acfun.tv/v/ac2889260)|[网盘](http://xz.twzy.tw)
 |2016/7/11|假如可以交換藝人的時間！！你想怎麼用？|邰智源,大根,许维恩,成语荞|[播放](http://www.acfun.tv/v/ac2888614)|[网盘](http://xz.twzy.tw)
 |2016/7/08|BBCall 瓊瑤劇 周慧敏 九零年代都在迷這些玩意！|林宥嘉,安苡爱,大根,大恺,香蕉,黄旭,小净,亦帆,成语荞,大飞,阿虎,凯莉,Una,依依|[播放](http://www.acfun.tv/v/ac2879307)|[网盘](http://xz.twzy.tw)
