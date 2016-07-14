@@ -23,7 +23,7 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |7.13|综艺大热门|[http://pan.baidu.com/s/1pLnJwrL](http://pan.baidu.com/s/1pLnJwrL)<br>密码:8fxa|小明星大跟班|[http://pan.baidu.com/s/1dEOvtQT](http://pan.baidu.com/s/1dEOvtQT)<br>密码:8a1a
-|7.13|小燕之夜|[]()<br>密码:|大学生了没|[http://pan.baidu.com/s/1pKDlCwz](http://pan.baidu.com/s/1pKDlCwz)<br>密码:p6er
+|7.13|小燕之夜|[http://pan.baidu.com/s/1pLVcLS3](http://pan.baidu.com/s/1pLVcLS3)<br>密码:hm7t|大学生了没|[http://pan.baidu.com/s/1pKDlCwz](http://pan.baidu.com/s/1pKDlCwz)<br>密码:p6er
 |7.13|型男大主厨|[http://pan.baidu.com/s/1mixYQzm](http://pan.baidu.com/s/1mixYQzm)<br>密码:ouct|女人我最大|[http://pan.baidu.com/s/1kUUoIMV](http://pan.baidu.com/s/1kUUoIMV)<br>密码:slxa
 |7.13|上班这党事|[http://pan.baidu.com/s/1nv1uDbr](http://pan.baidu.com/s/1nv1uDbr)<br>密码:iuvp|2分之一強|[]()<br>密码:
 |7.13|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1b0eQEq](http://pan.baidu.com/s/1b0eQEq)<br>密码:5mll
@@ -51,7 +51,7 @@
 |7.11|穿越康熙|[http://pan.baidu.com/s/1nvIV1YL](http://pan.baidu.com/s/1nvIV1YL)<br>密码:1h2e
 |7.10|名模出任务|[http://pan.baidu.com/s/1dFHjRjF](http://pan.baidu.com/s/1dFHjRjF)<br>密码:4rua|超爱美小姐|[]()<br>密码:
 |7.10|综艺大集合|[http://pan.baidu.com/s/1slu0J2t](http://pan.baidu.com/s/1slu0J2t)<br>密码:j98v|台湾名人堂|[]()<br>密码:
-|7.10|大陆寻奇|[]()<br>密码:|GOGO捷运|[http://pan.baidu.com/s/1kVcwizH](http://pan.baidu.com/s/1kVcwizH)<br>密码:779z
+|7.10|大陆寻奇|[http://pan.baidu.com/s/1qX9fMuo](http://pan.baidu.com/s/1qX9fMuo)<br>密码:6flx|GOGO捷运|[http://pan.baidu.com/s/1kVcwizH](http://pan.baidu.com/s/1kVcwizH)<br>密码:779z
 |7.10|GoGoTaiwan|[http://pan.baidu.com/s/1eSDef0u](http://pan.baidu.com/s/1eSDef0u)<br>密码:fsp8
 |7.9|综艺玩很大|[http://pan.baidu.com/s/1eSz6OuA](http://pan.baidu.com/s/1eSz6OuA)<br>密码:f4hj|天才冲冲冲|[http://pan.baidu.com/s/1boQ1cYz](http://pan.baidu.com/s/1boQ1cYz)<br>密码:b2fh
 |7.9|超级夜总会|[http://pan.baidu.com/s/1eSsfoWE](http://pan.baidu.com/s/1eSsfoWE)<br>密码:a8xn|超爱美小姐|[http://pan.baidu.com/s/1qXC3wxm](http://pan.baidu.com/s/1qXC3wxm)<br>密码:ga0m
