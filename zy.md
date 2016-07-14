@@ -15,7 +15,7 @@
 |20160713|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|美凤有约|美鳳上菜 牛蒡蒜頭雞湯、銷魂臘味飯|蔡萬利、雅美將|[点击播放](http://www.acfun.tv/v/ac2891978)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|美食好简单|蔥薑泥雞|温国智,老王|[点击播放](http://www.acfun.tv/v/ac2890467)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160713|国光帮帮忙|在男人面前！女人絕對不會聊這些事！|来宾|[点击播放](http://www.acfun.tv/v/ac2892122)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160713|国光帮帮忙|在男人面前！女人絕對不會聊這些事！|唐从圣,董事长乐团,荣忠豪,张芯瑜,杨晨熙,玉兔,Emily|[点击播放](http://www.acfun.tv/v/ac2892122)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|爱玩客|泰國 曼谷 普吉島 Follow 女神！Follow me，祕境美景，天堂的島|来宾|[点击播放](http://www.acfun.tv/v/ac2892075)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|医师好辣|越瘦越好？打造完美黃金比例！|王尹平 謝忻|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160713|食尚玩家|失落的靈珠 韓日5|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
