@@ -6,8 +6,8 @@
 ----|----|----|----|----|----|----
 |20160714|综艺大热门|當你遇到突如其來的告白！你的反應是？|宝妈,柯家豪,黄沐妍,白云,马国贤,罗莉塔,Amanda,High咖,林千又,大宝|[点击播放](http://www.acfun.tv/v/ac2894921)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|小明星大跟班|藝能界老外生死鬥！到底誰才是真本事！|梦多,西田惠里奈,马丁,贾斯汀,沈维娜|[点击播放](http://www.acfun.tv/v/ac2895000)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160714|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160714|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|小燕之夜|今晚你想唱什么歌？|艾成,马国贤,地球,大飞,黄荻钧,林若亚,小豫儿|[点击播放](http://www.acfun.tv/v/ac2896362)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|大学生了没|爱情密语让我好崩溃！！你怎么连话都说不清楚？！|亚美将,Erika|[点击播放](http://www.acfun.tv/v/ac2896356)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|型男大主厨|型男幫 VS 媽媽幫|来宾|[点击播放](http://www.acfun.tv/v/ac2895023)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|女人我最大|十二星座 谁在爱情中最听话？|唐立淇,王仁甫,梁赫群,罗平,李妍憬,况明洁,Lydia,林立雯,余秉谚,刘书宏|[点击播放](http://www.acfun.tv/v/ac2896085)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|上班这党事|戏剧经典的不败剧情 为何这些就是吸引人？|余皓然,沈玉琳,杨皓如,何嘉文|[点击播放](http://www.acfun.tv/v/ac2896096)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
