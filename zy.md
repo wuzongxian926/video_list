@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/%E5%8F%B0%E6%B9%BE%E7%BB%BC%E8%89%BA%E9%A2%91%E9%81%93%EF%BC%88%E5%AE%A3%E4%BC%A0%EF%BC%89.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160714|综艺大热门|當你遇到突如其來的告白！你的反應是？|来宾|[点击播放](http://www.acfun.tv/v/ac2894921)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160714|小明星大跟班|藝能界老外生死鬥！到底誰才是真本事！|来宾|[点击播放](http://www.acfun.tv/v/ac2895000)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|综艺大热门|當你遇到突如其來的告白！你的反應是？|宝妈,柯家豪,黄沐妍,白云,马国贤,罗莉塔,Amanda,High咖,林千又,大宝|[点击播放](http://www.acfun.tv/v/ac2894921)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160714|小明星大跟班|藝能界老外生死鬥！到底誰才是真本事！|梦多,西田惠里奈,马丁,贾斯汀,沈维娜|[点击播放](http://www.acfun.tv/v/ac2895000)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|小燕之夜|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|大学生了没|未更新|来宾|[点击播放]|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160714|型男大主厨|型男幫 VS 媽媽幫|来宾|[点击播放](http://www.acfun.tv/v/ac2895023)|[网盘下载](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
