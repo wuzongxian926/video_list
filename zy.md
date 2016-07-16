@@ -5,10 +5,10 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160715|综艺大热门|队友决定我的生死！超激斗游戏赛！|唐从圣,大根,惟毅,应家琛,Happy Polla,Una,康妮,詹子晴|[点击播放](http://www.acfun.tv/v/ac2898396)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160715|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160715|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160715|小燕之夜|我們的校園青春不留白！|来宾|[点击播放](http://www.acfun.tv/v/ac2899735)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160715|大学生了没|電玩女神大會師|来宾|[点击播放](http://www.acfun.tv/v/ac2899733)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160715|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160715|女人我最大|十二星座 谁在爱情中最听话？（下）|唐立淇,王仁甫,梁赫群,罗平,李妍憬,况明洁,Lydia,林立雯,余秉谚,刘书宏|[点击播放](http://www.acfun.tv/v/ac2899729)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|上班这党事|情侣相处的地雷行为 这些会是分手的开端？！|沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.acfun.tv/v/ac2898848)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

@@ -1,10 +1,11 @@
 # <div align = center>《女人我最大》全集</div>
 #### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
-##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购 吴宗宪粉丝|台综twzy.tw-QQ群：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 客服微信/QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
-<div align = center><img src="http://imgsrc.baidu.com/forum/w%3D580/sign=72383dd68a8ba61edfeec827713497cc/2c740aee3d6d55fb71f64d3a65224f4a21a4ddd9.jpg"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
+##### <div align = center>微信公众号 ：daleloogn  |  宝岛购购购 吴宗宪粉丝|台综twzy.tw-QQ群：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 收藏高清原盘资源请联系QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
+<div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/15|十二星座 谁在爱情中最听话？（下）|唐立淇,王仁甫,梁赫群,罗平,李妍憬,况明洁,Lydia,林立雯,余秉谚,刘书宏|[点击播放](http://www.acfun.tv/v/ac2899729)|[网盘下载](http://xz.twzy.tw)
 |2016/7/14|當你遇到突如其來的告白！你的反應是？|宝妈,柯家豪,黄沐妍,白云,马国贤,罗莉塔,Amanda,High咖,林千又,大宝|[点击播放](http://www.acfun.tv/v/ac2894921)|[网盘下载](http://xz.twzy.tw)
 |2016/7/13|暑假到了! 出遊也能美美的|Kevin,韦汝,Christine,李妍憬,成语荞|[点击播放](http://www.acfun.tv/v/ac2893342)|[网盘下载](http://xz.twzy.tw)
 |2016/7/12|时尚、阿桑一线之隔 穿对才能真正驾驭时尚！|佑群,林叶亭,王以路,萱瑜,汪诗敏,甄莉,崔佩仪,Christine|[点击播放](http://www.acfun.tv/v/ac2890516)|[网盘下载](http://xz.twzy.tw)
