@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/16|不可能的默契 & 联想Tempo & 看你怎么说|陈景炀,郭婷筠,曹雅雯,陈志强,蒋伟文,沈玉琳,佩佩,依依,Apple,李兴文|[点击播放](http://www.acfun.tv/v/ac2902267)|[网盘下载](http://xz.twzy.tw)
 |2016/7/09|Where Tempo & EAR传耳ABC & 你是Word演|陈怡婷,林彦君,Terry,夏语心,阿翔,陈子玄,杨子仪,陈珮骐,沈世朋,伊正|[点击播放](http://www.acfun.tv/v/ac2885484)|[网盘下载](http://xz.twzy.tw)
 |2016/7/02|看你怎么说 & EAR传耳ABC & 接龙Tempo|潘映竹,吴凤,黄乔歆,赖薇如,洪都拉斯,黄安琪,林埈永,李佳豫,王思佳,王仁甫|[点击播放](http://www.acfun.tv/v/ac2867350)|[网盘下载](http://xz.twzy.tw)
 |2016/6/25|Tempo大对决 韵脚Tempo & 联想Tempo & 动词Tempo|NONO,王中平,陈樱文,李懿,Eason,周宜霈,惟毅,杨升达,舒子晨,茵茵|[点击播放](http://www.acfun.tv/v/ac2851691)|[网盘下载](http://xz.twzy.tw)
