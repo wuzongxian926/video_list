@@ -4,9 +4,9 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160716|综艺玩很大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160716|综艺玩很大|日本犬山（下）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2900779)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160716|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160716|超级夜总会|新北三峽|来宾|[点击播放](http://www.acfun.tv/v/ac2900780)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
