@@ -4,6 +4,13 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160717|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|大陆寻奇|清朝皇室西行記(三) 冰雪龍江|来宾|[点击播放](http://www.acfun.tv/v/ac2902241)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|综艺玩很大|日本犬山（下）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2900779)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|超级夜总会|新北三峽|甲子慧,蔡佳麟,江志丰,黑面,蔡小虎,谈诗玲|[点击播放](http://www.acfun.tv/v/ac2900780)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
