@@ -7,7 +7,7 @@
 |20160716|综艺玩很大|日本犬山（下）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2900779)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|超级夜总会|新北三峽|来宾|[点击播放](http://www.acfun.tv/v/ac2900780)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160716|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160716|超爱美小姐|穿搭icon夏日时尚Best Buy|关,夏和熙,凯希,唐葳,简恺蒂|[点击播放](http://www.acfun.tv/v/ac2901044)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
