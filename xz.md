@@ -73,7 +73,7 @@
 |7.11|食尚玩家|[http://pan.baidu.com/s/1mifbTjU](http://pan.baidu.com/s/1mifbTjU)<br>密码:qxdm|请你跟我这样过|[http://pan.baidu.com/s/1pLGP73H](http://pan.baidu.com/s/1pLGP73H)<br>密码:kx79
 |7.11|穿越康熙|[http://pan.baidu.com/s/1nvIV1YL](http://pan.baidu.com/s/1nvIV1YL)<br>密码:1h2e
 |7.10|名模出任务|[http://pan.baidu.com/s/1dFHjRjF](http://pan.baidu.com/s/1dFHjRjF)<br>密码:4rua|超爱美小姐|[]()<br>密码:
-|7.10|综艺大集合|[http://pan.baidu.com/s/1slu0J2t](http://pan.baidu.com/s/1slu0J2t)<br>密码:j98v|台湾名人堂|[]()<br>密码:
+|7.10|综艺大集合|[http://pan.baidu.com/s/1slu0J2t](http://pan.baidu.com/s/1slu0J2t)<br>密码:j98v|台湾名人堂|[http://pan.baidu.com/s/1hrStjNm](http://pan.baidu.com/s/1hrStjNm)<br>密码:mh3b
 |7.10|大陆寻奇|[http://pan.baidu.com/s/1qX9fMuo](http://pan.baidu.com/s/1qX9fMuo)<br>密码:6flx|GOGO捷运|[http://pan.baidu.com/s/1kVcwizH](http://pan.baidu.com/s/1kVcwizH)<br>密码:779z
 |7.10|GoGoTaiwan|[http://pan.baidu.com/s/1eSDef0u](http://pan.baidu.com/s/1eSDef0u)<br>密码:fsp8
 |7.9|综艺玩很大|[http://pan.baidu.com/s/1eSz6OuA](http://pan.baidu.com/s/1eSz6OuA)<br>密码:f4hj|天才冲冲冲|[http://pan.baidu.com/s/1boQ1cYz](http://pan.baidu.com/s/1boQ1cYz)<br>密码:b2fh
