@@ -22,13 +22,13 @@
 |全集|超级夜总会|[http://pan.baidu.com/s/1bRjctS](http://pan.baidu.com/s/1bRjctS)<br>密码:atht|GoGoTaiwan|[http://pan.baidu.com/s/1gfrxrt5](http://pan.baidu.com/s/1gfrxrt5)<br>密码:nuvh
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
-|7.18|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
+|7.18|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1o88KxBG](http://pan.baidu.com/s/1o88KxBG)<br>密码:9hxa
 |7.18|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
 |7.18|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |7.18|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.18|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |7.18|美食好简单|[http://pan.baidu.com/s/1c28yOYO](http://pan.baidu.com/s/1c28yOYO)<br>密码:mgu0|国光帮帮忙|[]()<br>密码:
-|7.18|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|7.18|爱玩客|[http://pan.baidu.com/s/1jHQTnEY](http://pan.baidu.com/s/1jHQTnEY)<br>密码:ru85|医师好辣|[]()<br>密码:
 |7.18|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.18|穿越康熙|[http://pan.baidu.com/s/1i5beEVF](http://pan.baidu.com/s/1i5beEVF)<br>密码:qhhe|
 |7.17|名模出任务|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1eRGRXke](http://pan.baidu.com/s/1eRGRXke)<br>密码:649f
