@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160717|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160717|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|超爱美小姐|時尚show room|来宾|[点击播放](http://www.acfun.tv/v/ac2903213)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|大陆寻奇|清朝皇室西行記(三) 冰雪龍江|来宾|[点击播放](http://www.acfun.tv/v/ac2902241)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -26,7 +26,7 @@
 |20160715|女人我最大|十二星座 谁在爱情中最听话？（下）|唐立淇,王仁甫,梁赫群,罗平,李妍憬,况明洁,Lydia,林立雯,余秉谚,刘书宏|[点击播放](http://www.acfun.tv/v/ac2899729)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|上班这党事|情侣相处的地雷行为 这些会是分手的开端？！|沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.acfun.tv/v/ac2898848)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160715|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160715|娱乐百分百|真心大擂台|小猪,恺乐,小猪,恺乐,慢慢说,嘻小瓜,有感觉乐团,陈雪九|[点击播放](http://www.acfun.tv/v/ac2903246)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|美食好简单|月亮虾饼 & 绿咖喱鸡|微微蔡|[点击播放](http://www.acfun.tv/v/ac2897984)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160715|穿越康熙|明星浴室裡隱藏的秘密|来宾|[点击播放](http://www.acfun.tv/v/ac2897573)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
