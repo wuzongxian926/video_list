@@ -103,7 +103,7 @@
 |20160710|名模出任务|夏天就是要玩水啊|沈玉琳,李懿,成语荞,IKEA,黄志玮,李沛旭,陈思璇,大恺,曾智希,裴颉|[点击播放](http://www.acfun.tv/v/ac2888722)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|综艺大集合|桃園<br>平鎮|红毛,曹育豪,郭婷筠,LOOK,常立琳,黄沐妍|[点击播放](http://www.acfun.tv/v/ac2886931)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160710|台湾名人堂||来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160710|台湾名人堂|SOGO董事長_黃晴雯|黃晴雯|[点击播放](http://www.acfun.tv/v/ac2903116)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|大陆寻奇|清朝皇室西行記(一) / 冰雪龍江(四)|来宾|[点击播放](http://www.acfun.tv/v/ac2893841)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|GOGO捷运|板南線-市政府站|来宾|[点击播放](http://www.acfun.tv/v/ac2886915)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160710|GoGoTaiwan|彰化田中 路跑尋米小旅行|来宾|[点击播放](http://www.acfun.tv/v/ac2886908)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
