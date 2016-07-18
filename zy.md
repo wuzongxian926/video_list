@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160718|综艺大热门|小孩大開講! 他們早就想的跟大人不一樣! |来宾|[点击播放](http://www.acfun.tv/v/ac2906162)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160718|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160718|小明星大跟班|谁才是Sandy的真心姐妹淘？！|小甜甜,谢忻,刘雨柔,舒子晨,林昀希,李宣榕,Juna,筱蕾,小红|[点击播放](http://www.acfun.tv/v/ac2906310)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -16,7 +16,7 @@
 |20160718|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|美食好简单|玉米番茄鸡 & 香辣茄子|温国智|[点击播放](http://www.acfun.tv/v/ac2905257)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160718|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160718|爱玩客|南台灣 夏天最透心涼的玩法，跟著愛玩客到南台灣消暑去|来宾|[点击播放](http://www.acfun.tv/v/ac2906311)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
