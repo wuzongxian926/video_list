@@ -25,12 +25,12 @@
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |7.18|综艺大热门|[http://pan.baidu.com/s/1i5i6m5R](http://pan.baidu.com/s/1i5i6m5R)<br>密码:0pfk|小明星大跟班|[http://pan.baidu.com/s/1o88KxBG](http://pan.baidu.com/s/1o88KxBG)<br>密码:9hxa
 |7.18|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.18|型男大主厨|[http://pan.baidu.com/s/1gf17h4J](http://pan.baidu.com/s/1gf17h4J)<br>密码:gfou|女人我最大|[]()<br>密码:
+|7.18|型男大主厨|[http://pan.baidu.com/s/1gf17h4J](http://pan.baidu.com/s/1gf17h4J)<br>密码:gfou|女人我最大|[http://pan.baidu.com/s/1geVJgDP](http://pan.baidu.com/s/1geVJgDP)<br>密码:pf8r
 |7.18|上班这党事|[http://pan.baidu.com/s/1dF8wOrZ](http://pan.baidu.com/s/1dF8wOrZ)<br>密码:i3zq|2分之一強|[]()<br>密码:
 |7.18|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |7.18|美食好简单|[http://pan.baidu.com/s/1c28yOYO](http://pan.baidu.com/s/1c28yOYO)<br>密码:mgu0|国光帮帮忙|[http://pan.baidu.com/s/1slKP6I5](http://pan.baidu.com/s/1slKP6I5)<br>密码:g2yb
 |7.18|爱玩客|[http://pan.baidu.com/s/1jHQTnEY](http://pan.baidu.com/s/1jHQTnEY)<br>密码:ru85|医师好辣|[]()<br>密码:
-|7.18|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
+|7.18|食尚玩家|[http://pan.baidu.com/s/1kVMxI2V](http://pan.baidu.com/s/1kVMxI2V)<br>密码:xcfw|请你跟我这样过|[]()<br>密码:
 |7.18|穿越康熙|[http://pan.baidu.com/s/1i5beEVF](http://pan.baidu.com/s/1i5beEVF)<br>密码:qhhe|
 |7.17|名模出任务|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1eRGRXke](http://pan.baidu.com/s/1eRGRXke)<br>密码:649f
 |7.17|综艺大集合|[http://pan.baidu.com/s/1kUWqQzX](http://pan.baidu.com/s/1kUWqQzX)<br>密码:9rvq|台湾名人堂|[]()<br>密码:
