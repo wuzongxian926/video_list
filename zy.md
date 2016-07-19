@@ -27,7 +27,7 @@
 |20160717|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|大陆寻奇|清朝皇室西行記(三) 冰雪龍江|来宾|[点击播放](http://www.acfun.tv/v/ac2902241)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160717|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|GoGoTaiwan|Ep214 作夥愛地球 生態旅行齊步走|来宾|[点击播放](http://www.acfun.tv/v/ac2906475)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|综艺玩很大|日本犬山（下）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2900779)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|天才冲冲冲|不可能的默契 & 联想Tempo & 看你怎么说|陈景炀,郭婷筠,曹雅雯,陈志强,蒋伟文,沈玉琳,佩佩,依依,Apple,李兴文|[点击播放](http://www.acfun.tv/v/ac2902267)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|超级夜总会|新北三峽|甲子慧,蔡佳麟,江志丰,黑面,蔡小虎,谈诗玲|[点击播放](http://www.acfun.tv/v/ac2900780)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
