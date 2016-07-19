@@ -21,6 +21,7 @@
 |20160718|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|穿越康熙|穿对比基尼 人人都是女神|来宾|[点击播放](http://www.acfun.tv/v/ac2905599)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160717|没玩没了|冻手冻脚 & 给我滚 & 六六大顺十八骰子 & 龙抬头 & 丝袜寻宝|徐乃麟,曾国城,庹宗康,康康,郭子乾,方芳芳,刘雨柔,李懿,林采缇,邱慧雯,杨升达,丹妮表姐,无尊,舒子晨|[点击播放](http://www.acfun.tv/v/ac2906474)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|超爱美小姐|時尚show room|来宾|[点击播放](http://www.acfun.tv/v/ac2903213)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

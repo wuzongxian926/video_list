@@ -18,9 +18,10 @@
 |全民一起来|中华电视台<br>每周六晚8点|[播放](https://github.com/wuzongxian926/video_list/blob/master/qmyql.md)|[网盘](http://xz.twzy.tw)|综艺大集合|民视<br>每周日晚8点|[播放](https://github.com/wuzongxian926/video_list/blob/master/ZYDJH.MD)|[网盘](http://xz.twzy.tw)
 |舞力全开|民视无线台<br>每周六晚10点|[播放](https://github.com/wuzongxian926/video_list/blob/master/wlqk.md)|[网盘](http://xz.twzy.tw)|流行新势力|民视综合台<br>每周二晚11点|[播放](https://github.com/wuzongxian926/video_list/blob/master/lxxsl.md)|[网盘](http://xz.twzy.tw)
 |超爱美小姐|MTV娱乐台、三立都会台<br>每周六日午2点|[播放](https://github.com/wuzongxian926/video_list/blob/master/camxj.md)|[网盘](http://xz.twzy.tw)|GoGoTaiwan|民视无线台<br>周日早11:00|[播放](https://github.com/wuzongxian926/video_list/blob/master/ggtw.md)|[网盘](http://xz.twzy.tw)
-|台湾名人堂|台湾电视台<br>每周三六日|[播放](https://github.com/wuzongxian926/video_list/blob/master/twmrt.md)|[网盘](http://xz.twzy.tw)|大陆寻奇|中国电视台<br>每周日晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/dlxq.md)|[网盘](http://xz.twzy.tw)
+|台湾名人堂|台湾电视台<br>每周三六日|[播放](https://github.com/wuzongxian926/video_list/blob/master/twmrt.md)|[网盘](http://xz.twzy.tw)|没玩没了|中国电视台<br>每周日晚8点|[播放](https://github.com/wuzongxian926/video_list/blob/master/mwml.md)|[网盘](http://xz.twzy.tw)
 |超级夜总会|三立台湾台<br>每周六晚6:30|[播放](https://github.com/wuzongxian926/video_list/blob/master/CJYZH.MD)|[网盘](http://xz.twzy.tw)|GOGO捷运|民视无线台<br>周日午14:00|[播放](https://github.com/wuzongxian926/video_list/blob/master/ggjy.md)|[网盘](http://xz.twzy.tw)
 |正妹讚出來|台湾电视台<br>每周三晚10点|[播放](https://github.com/wuzongxian926/video_list/blob/master/zmzcl.md)|[网盘](http://xz.twzy.tw)|一字千金|公共电视台<br>每周四晚9点|[播放](https://github.com/wuzongxian926/video_list/blob/master/yzqj.md)|[网盘](http://xz.twzy.tw)
 |私房话老实说|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/sfhlss.md)|[网盘](http://xz.twzy.tw)|青春星主播|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|[网盘](http://xz.twzy.tw)
 |完全娱乐|三立都会台<br>周一至周五晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/wqyl.md)|[网盘](http://xz.twzy.tw)|东森旅游玩乐志|東森綜合台<br>周六午5点|[播放](https://github.com/wuzongxian926/video_list/blob/master/dsly.md)|[网盘](http://xz.twzy.tw)
+|大陆寻奇|中国电视台<br>每周日晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/dlxq.md)|[网盘](http://xz.twzy.tw)
 
