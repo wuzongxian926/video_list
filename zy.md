@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160718|综艺大热门|小孩大開講! 他們早就想的跟大人不一樣! |来宾|[点击播放](http://www.acfun.tv/v/ac2906162)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160718|综艺大热门|小孩大開講! 他們早就想的跟大人不一樣! |何妤玟,余皓然|[点击播放](http://www.acfun.tv/v/ac2906162)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|小明星大跟班|谁才是Sandy的真心姐妹淘？！|小甜甜,谢忻,刘雨柔,舒子晨,林昀希,李宣榕,Juna,筱蕾,小红|[点击播放](http://www.acfun.tv/v/ac2906310)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

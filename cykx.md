@@ -17,3 +17,4 @@
 |2016/7/05|超催淚失戀情歌|来宾|[点击播放](http://www.acfun.tv/v/ac2877282_4)|[网盘下载](http://xz.twzy.tw)
 |2016/7/04|明星租屋事件簿|来宾|[点击播放](http://www.acfun.tv/v/ac2867350_4)|[网盘下载](http://xz.twzy.tw)
 |2016/7/01|鬼話連篇的明星靈異體驗|来宾|[点击播放](http://www.acfun.tv/v/ac2881225_2)|[网盘下载](http://xz.twzy.tw)
+|2016/1/25|謝謝他們曾經來過康熙卸妝|来宾|[点击播放](http://www.acfun.tv/v/ac2906930)|[网盘下载](http://xz.twzy.tw)
