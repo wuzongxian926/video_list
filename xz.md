@@ -29,7 +29,7 @@
 |7.19|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.19|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |7.19|美食好简单|[http://pan.baidu.com/s/1c1S1zlI](http://pan.baidu.com/s/1c1S1zlI)<br>密码:tgad|国光帮帮忙|[]()<br>密码:
-|7.19|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|7.19|爱玩客|[http://pan.baidu.com/s/1jIPhClo](http://pan.baidu.com/s/1jIPhClo)<br>密码:g78a|医师好辣|[]()<br>密码:
 |7.19|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.19|穿越康熙|[http://pan.baidu.com/s/1bU7vsE](http://pan.baidu.com/s/1bU7vsE)<br>密码:xqwo|流行新势力|[]()<br>密码:
 |7.18|综艺大热门|[http://pan.baidu.com/s/1i5i6m5R](http://pan.baidu.com/s/1i5i6m5R)<br>密码:0pfk|小明星大跟班|[http://pan.baidu.com/s/1o88KxBG](http://pan.baidu.com/s/1o88KxBG)<br>密码:9hxa
