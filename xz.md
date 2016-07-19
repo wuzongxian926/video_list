@@ -18,10 +18,11 @@
 |全集|全民一起来|[http://pan.baidu.com/s/1bLdzJo](http://pan.baidu.com/s/1bLdzJo)<br>密码:2d2w|综艺大集合|[http://pan.baidu.com/s/1mijL85i](http://pan.baidu.com/s/1mijL85i)<br>密码:86ci
 |全集|舞力全开|[http://pan.baidu.com/s/1hsx0QZa](http://pan.baidu.com/s/1hsx0QZa)<br>密码:2w8l|流行新势力|[http://pan.baidu.com/s/1jIjjDWU](http://pan.baidu.com/s/1jIjjDWU)<br>密码:oe5x
 |全集|超爱美小姐|[http://pan.baidu.com/s/1bp4wD9H](http://pan.baidu.com/s/1bp4wD9H)<br>密码:udcs|GOGO捷运|[http://pan.baidu.com/s/1i4VE4i5](http://pan.baidu.com/s/1i4VE4i5)<br>密码:cw51
-|全集|台湾名人堂|[http://pan.baidu.com/s/1geIRviV](http://pan.baidu.com/s/1geIRviV)<br>密码:fap7|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8
+|全集|台湾名人堂|[http://pan.baidu.com/s/1geIRviV](http://pan.baidu.com/s/1geIRviV)<br>密码:fap7|没玩没了|[http://pan.baidu.com/s/1pLxTcUn](http://pan.baidu.com/s/1pLxTcUn)<br>密码:mg75
 |全集|超级夜总会|[http://pan.baidu.com/s/1bRjctS](http://pan.baidu.com/s/1bRjctS)<br>密码:atht|GoGoTaiwan|[http://pan.baidu.com/s/1gfrxrt5](http://pan.baidu.com/s/1gfrxrt5)<br>密码:nuvh
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
+|全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |7.18|综艺大热门|[http://pan.baidu.com/s/1i5i6m5R](http://pan.baidu.com/s/1i5i6m5R)<br>密码:0pfk|小明星大跟班|[http://pan.baidu.com/s/1o88KxBG](http://pan.baidu.com/s/1o88KxBG)<br>密码:9hxa
 |7.18|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
 |7.18|型男大主厨|[http://pan.baidu.com/s/1gf17h4J](http://pan.baidu.com/s/1gf17h4J)<br>密码:gfou|女人我最大|[]()<br>密码:
