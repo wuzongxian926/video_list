@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160719|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160719|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|综艺大热门|集资圆你的梦！？但你凭什么让大家掏钱？|董事长乐团,巴赖,刘雨柔,温瀚龙,庄心妍,傅又宣,H.T.J乐团,冠皓|[点击播放](http://www.acfun.tv/v/ac2909267)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|小明星大跟班|身材和实力成正比？！性感女神排位战！！|辜莞允,安苡爱,梁云菲,LaLa,雪碧,嘻小瓜|[点击播放](http://www.acfun.tv/v/ac2909353)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -14,9 +14,9 @@
 |20160719|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160719|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160719|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160719|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|美食好简单|米苔目鯃仔鱼 & 酒香桂皮烧鸭|温国智|[点击播放](http://www.acfun.tv/v/ac2909131)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|国光帮帮忙|新舊SG大對抗！這行真的沒那麼好生存！！|来宾|[点击播放](http://www.acfun.tv/v/ac2909558)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|爱玩客|首尔 网红带路 挖出在地好滋味|詹姆士,雷瑟琳|[点击播放](http://www.acfun.tv/v/ac2909262)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -35,7 +35,7 @@
 |20160718|国光帮帮忙|狠起来不是人 我被女人干谯的日子|洪都拉斯,马力欧,Terry,张峰奇,李懿,拉拉,梦梦|[点击播放](http://www.acfun.tv/v/ac2906440)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|爱玩客|南台灣 夏天最透心涼的玩法，跟著愛玩客到南台灣消暑去|来宾|[点击播放](http://www.acfun.tv/v/ac2906311)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|医师好辣|让医师目瞪口呆的惊人病史？！|佩佩,唐从圣,甄莉|[点击播放](http://www.acfun.tv/v/ac2908500)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160718|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160718|食尚玩家|台东 仅此一团！包山包海一条龙！（上）|黄镫辉,曾子余|[点击播放](http://www.acfun.tv/v/ac2909319_3)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|穿越康熙|穿对比基尼 人人都是女神|来宾|[点击播放](http://www.acfun.tv/v/ac2905599)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160717|没玩没了|冻手冻脚 & 给我滚 & 六六大顺十八骰子 & 龙抬头 & 丝袜寻宝|徐乃麟,曾国城,庹宗康,康康,郭子乾,方芳芳,刘雨柔,李懿,林采缇,邱慧雯,杨升达,丹妮表姐,无尊,舒子晨|[点击播放](http://www.acfun.tv/v/ac2906474)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

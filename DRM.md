@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/7/19|集资圆你的梦！？但你凭什么让大家掏钱？|董事长乐团,巴赖,刘雨柔,温瀚龙,庄心妍,傅又宣,H.T.J乐团,冠皓|[点击播放](http://www.acfun.tv/v/ac2909267)|[网盘](http://xz.twzy.tw)
 |2016/7/18|小孩大開講! 他們早就想的跟大人不一樣! |何妤玟,余皓然|[点击播放](http://www.acfun.tv/v/ac2906162)|[网盘](http://xz.twzy.tw)
 |2016/7/15|队友决定我的生死！超激斗游戏赛！|唐从圣,大根,惟毅,应家琛,Happy Polla,Una,康妮,詹子晴|[点击播放](http://www.acfun.tv/v/ac2898396)|[网盘](http://xz.twzy.tw)
 |2016/7/14|當你遇到突如其來的告白！你的反應是？|宝妈,柯家豪,黄沐妍,白云,马国贤,罗莉塔,Amanda,High咖,林千又,大宝|[点击播放](http://www.acfun.tv/v/ac2894921)|[网盘](http://xz.twzy.tw)
