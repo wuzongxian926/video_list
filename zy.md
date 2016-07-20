@@ -12,7 +12,7 @@
 |20160719|女人我最大|天气那么热！出国爆吃爆买就对了！|Kevin,吴依霖,倪雅伦,汪诗敏,韦汝,Christine|[点击播放](http://www.acfun.tv/v/ac2910470)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|上班这党事|医院常见的错误观念 护士不说的健康秘密？！|Sam,韦汝,洪素卿,刘怡里|[点击播放](http://www.acfun.tv/v/ac2910429)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160719|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|娱乐百分百|百分百LIVE|恺乐,毛弟,SpeXial|[点击播放](http://www.acfun.tv/v/ac2911151)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|美凤有约|拥抱火辣艳阳天 肌肤如何全面防护|Apple,詹子晴,梵纬|[点击播放](http://www.acfun.tv/v/ac2910300)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|美食好简单|米苔目鯃仔鱼 & 酒香桂皮烧鸭|温国智|[点击播放](http://www.acfun.tv/v/ac2909131)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|国光帮帮忙|新舊SG大對抗！這行真的沒那麼好生存！！|来宾|[点击播放](http://www.acfun.tv/v/ac2909558)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
