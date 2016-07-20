@@ -13,7 +13,7 @@
 |20160719|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160719|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|美凤有约|拥抱火辣艳阳天 肌肤如何全面防护|Apple,詹子晴,梵纬|[点击播放](http://www.acfun.tv/v/ac2910300)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|美食好简单|米苔目鯃仔鱼 & 酒香桂皮烧鸭|温国智|[点击播放](http://www.acfun.tv/v/ac2909131)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|国光帮帮忙|新舊SG大對抗！這行真的沒那麼好生存！！|来宾|[点击播放](http://www.acfun.tv/v/ac2909558)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|爱玩客|首尔 网红带路 挖出在地好滋味|詹姆士,雷瑟琳|[点击播放](http://www.acfun.tv/v/ac2909262)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

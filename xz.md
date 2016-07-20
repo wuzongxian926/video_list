@@ -25,7 +25,7 @@
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |7.19|综艺大热门|[http://pan.baidu.com/s/1bpNuczX](http://pan.baidu.com/s/1bpNuczX)<br>密码:3uvz|小明星大跟班|[http://pan.baidu.com/s/1bp3bqwB](http://pan.baidu.com/s/1bp3bqwB)<br>密码:doxe
 |7.19|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.19|型男大主厨|[http://pan.baidu.com/s/1qYeorM0](http://pan.baidu.com/s/1qYeorM0)<br>密码:gsnv|女人我最大|[]()<br>密码:
+|7.19|型男大主厨|[http://pan.baidu.com/s/1qYeorM0](http://pan.baidu.com/s/1qYeorM0)<br>密码:gsnv|女人我最大|[http://pan.baidu.com/s/1jIvv3tO](http://pan.baidu.com/s/1jIvv3tO)<br>密码:hbqj
 |7.19|上班这党事|[http://pan.baidu.com/s/1eRKpQqY](http://pan.baidu.com/s/1eRKpQqY)<br>密码:5d8w|2分之一強|[]()<br>密码:
 |7.19|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1gf4paJT](http://pan.baidu.com/s/1gf4paJT)<br>密码:taes
 |7.19|美食好简单|[http://pan.baidu.com/s/1c1S1zlI](http://pan.baidu.com/s/1c1S1zlI)<br>密码:tgad|国光帮帮忙|[http://pan.baidu.com/s/1skWKEFb](http://pan.baidu.com/s/1skWKEFb)<br>密码:pt85
