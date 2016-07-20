@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160720|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160720|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160720|综艺大热门|翻白眼吧! 最荒謬天兵助理故事大賽!|来宾|[点击播放](http://www.acfun.tv/v/ac2912450)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160720|小明星大跟班|男人的眼光沾到蚬仔肉？！让宪哥帮你挑女友|NONO,Mei,小优,卡古,柯家豪,李佑诚,博焱|[点击播放](http://www.acfun.tv/v/ac2912378)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -15,8 +15,8 @@
 |20160720|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|美食好简单|初朵菇卤烤麸 & 豆瓣手工面|温国智,老王|[点击播放](http://www.acfun.tv/v/ac2912239)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160720|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160720|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160720|国光帮帮忙|男人！喝酒配這道才叫青 ！！ |来宾|[点击播放](http://www.acfun.tv/v/ac2912473)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160720|爱玩客|菲律賓 科隆島 不想上班阿！！全球最佳度假島嶼，純粹自然的好生活，值得你拋下手機，衝一波|来宾|[点击播放](http://www.acfun.tv/v/ac2912358)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -68,7 +68,7 @@
 |20160716|天才冲冲冲|不可能的默契 & 联想Tempo & 看你怎么说|陈景炀,郭婷筠,曹雅雯,陈志强,蒋伟文,沈玉琳,佩佩,依依,Apple,李兴文|[点击播放](http://www.acfun.tv/v/ac2902267)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|超级夜总会|新北三峽|甲子慧,蔡佳麟,江志丰,黑面,蔡小虎,谈诗玲|[点击播放](http://www.acfun.tv/v/ac2900780)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|超爱美小姐|穿搭icon夏日时尚Best Buy|关,夏和熙,凯希,唐葳,简恺蒂|[点击播放](http://www.acfun.tv/v/ac2901044)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160716|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160716|舞力全开|【第197集】明星舞王舞后爭霸賽 台灣啦啦隊國家代表隊示範表演 ! |来宾|[点击播放](http://www.acfun.tv/v/ac2912379)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|全民一起来|夺宝大作战|Albee,张文绮,黄品源,张立东,梁赫群,白董,小豪|[点击播放](http://www.acfun.tv/v/ac2905701)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|娱乐百分百|明星好麻吉|小猪,恺乐,林建予,Kid,筱崎泫|[点击播放](http://www.acfun.tv/v/ac2906472)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160716|大陆寻奇|清朝皇室西行記(四) 冰雪龍江(七) |来宾|[点击播放](http://www.acfun.tv/v/ac2905640)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
