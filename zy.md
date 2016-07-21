@@ -57,6 +57,7 @@
 |20160719|请你跟<br>我这样过|撒花？！吃冰健康又瘦身？！|黄小柔,杜诗梅,张文绮,专家:萧敦仁,刘怡里,洪素卿|[点击播放](http://www.acfun.tv/v/ac2912270)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160719|穿越康熙|扮演別人比較好賺？！ |来宾|[点击播放](http://www.acfun.tv/v/ac2908796)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|综艺大热门|小孩大開講! 他們早就想的跟大人不一樣! |何妤玟,余皓然|[点击播放](http://www.acfun.tv/v/ac2906162)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160719|流行新势力|日本鐵道一日輕旅行|五熊,林彦君,TOMO,熊爸(旅游达人)|[点击播放](http://www.acfun.tv/v/ac2916105)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|小明星大跟班|谁才是Sandy的真心姐妹淘？！|小甜甜,谢忻,刘雨柔,舒子晨,林昀希,李宣榕,Juna,筱蕾,小红|[点击播放](http://www.acfun.tv/v/ac2906310)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|小燕之夜|吴奇隆的幸福旅程|吴奇隆|[点击播放](http://www.acfun.tv/v/ac2908432)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|大学生了没|這樣竟然也賺得到錢？！特殊打工大集合！|来宾|[点击播放](http://www.acfun.tv/v/ac2908438)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
