@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160720|综艺大热门|翻白眼吧! 最荒謬天兵助理故事大賽!|来宾|[点击播放](http://www.acfun.tv/v/ac2912450)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160720|综艺大热门|翻白眼吧! 最荒謬天兵助理故事大賽!|梁赫群,五熊,沈玉琳,何嘉文,哈孝远,陈樱文,撒基努,小茉莉|[点击播放](http://www.acfun.tv/v/ac2912450)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|小明星大跟班|男人的眼光沾到蚬仔肉？！让宪哥帮你挑女友|NONO,Mei,小优,卡古,柯家豪,李佑诚,博焱|[点击播放](http://www.acfun.tv/v/ac2912378)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160720|大学生了没|超年輕爸媽現身！|来宾|[点击播放](http://www.acfun.tv/v/ac2914029)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
