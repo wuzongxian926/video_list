@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/20|百分百LIVE|恺乐,威廉,左左右右|[点击播放](http://www.acfun.tv/v/ac2915456)|[网盘下载](http://xz.twzy.tw)
 |2016/7/19|百分百LIVE|恺乐,毛弟,SpeXial|[点击播放](http://www.acfun.tv/v/ac2911151)|[网盘下载](http://xz.twzy.tw)
 |2016/7/18|百分百小巨蛋|小猪,威廉,李佳薇,Erika|[点击播放](http://www.acfun.tv/v/ac2910149)|[网盘下载](http://xz.twzy.tw)
 |2016/7/16|明星好麻吉|小猪,恺乐,林建予,Kid,筱崎泫|[点击播放](http://www.acfun.tv/v/ac2906472)|[网盘下载](http://xz.twzy.tw)
