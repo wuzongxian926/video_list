@@ -1,0 +1,81 @@
+<html>
+<head>
+<meta http-equiv="Content-Type" content="text/html; charset=UTF-8">
+<title>404 Not Found</title>
+<style type="text/css">
+<!--
+.t 
+{
+        font-family: Verdana, Arial, Helvetica, sans-serif;
+        color: #CC0000;
+}
+.c 
+{
+        font-family: Verdana, Arial, Helvetica, sans-serif;
+        font-size: 11px;
+        font-weight: normal;
+        color: #000000;
+        line-height: 18px;
+        text-align: center;
+        border: 1px solid #CCCCCC;
+        background-color: #FFFFEC;
+}
+body 
+{
+        background-color: #FFFFFF;
+        margin-top: 100px;
+}
+-->
+</style>
+<script type="text/javascript">   
+// -------- 返回指定到url
+function countDown(secs,surl)
+{               
+  var jumpTo = document.getElementById('jumpTo');    
+  jumpTo.innerHTML=secs;      
+  if(--secs>0)
+  {         
+    setTimeout("countDown("+secs+",'"+surl+"')",1000);         
+  }
+  else
+  {           
+     location.href=surl;       
+  }         
+ } 
+
+// --------- 返回上一页
+function countDown(secs)
+{               
+  var jumpTo = document.getElementById('jumpTo');    
+  jumpTo.innerHTML=secs;      
+  if(--secs>0)
+  {         
+    setTimeout("countDown("+secs+")",1000);         
+  }
+  else
+  {           
+    history.go(-1);     
+  }         
+ }  
+</script>  
+</head>
+<body onload="begintimer()">
+<div align="center">
+  <h2><span class="t">404，抱歉，您访问的页面不存在！</span></h2>
+  <table border="0" cellpadding="8" cellspacing="0" width="50%">
+    <tbody>
+      <tr>
+        <td class="c">
+          <br/>
+         The requested URL was not found on this server. 
+         <br/>
+         <br/>
+         <span id="jumpTo">10</span>秒后，页面将返回上一页！  
+    <script type="text/javascript">countDown(10);</script>  
+        </td>
+      </tr>
+    </tbody>
+  </table>
+</div>
+</body>
+</html>
