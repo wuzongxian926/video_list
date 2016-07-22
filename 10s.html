@@ -35,7 +35,7 @@ function countDown(secs,surl)
   jumpTo.innerHTML=secs;      
   if(--secs>0)
   {         
-    setTimeout("countDown("+secs+",'"+surl+"')",1000);
+    setTimeout("countDown("+secs+",'"+surl+"')",2000);
   }
   else
   {           
@@ -50,7 +50,7 @@ function countDown(secs)
   jumpTo.innerHTML=secs;      
   if(--secs>0)
   {         
-    setTimeout("countDown("+secs+")",1000);
+    setTimeout("countDown("+secs+")",2000);
   }
   else
   {           
@@ -65,8 +65,8 @@ function countDown(secs)
            <tr><td><img src="https://github.com/wuzongxian926/video_list/raw/master/gitlogo.jpg" alt="宝岛购购购七月钜惠" style="max-width:100%;"></td></tr>
            <tr>
 					<td class="c">
-					<span id="jumpTo">10</span>秒后，页面将返回上一页！
-                    <script type="text/javascript">countDown(10);</script>  </td>
+					<span id="jumpTo">20</span>秒后，页面将返回上一页！
+                    <script type="text/javascript">countDown(20);</script>  </td>
 			</tr>
       </table>
 </center>
