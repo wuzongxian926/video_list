@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160721|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160721|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160721|综艺大热门|毕业照帅哥美女！好想认识这个同学喔！|老田,李懿,郭鑫|[点击播放](http://www.acfun.tv/v/ac2916154)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160721|小明星大跟班|说出来会出大事！！亲子告解大会！！|马如龙,黄圣雅,蔡菁文,大恺,吕可欣,蔡允洁,Christina,阿虎|[点击播放](http://www.acfun.tv/v/ac2916293)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
