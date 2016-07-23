@@ -7,7 +7,7 @@
 |20160722|综艺大热门|讓國高中生尖叫的人 跟我們想得不一樣|来宾|[点击播放](http://www.acfun.tv/v/ac2919558)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|小燕之夜|一起走過彼此的美好年代！|来宾|[点击播放](http://www.acfun.tv/v/ac2926083)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|大学生了没|租屋總是運氣差！惡房東速速退散！|来宾|[点击播放](http://www.acfun.tv/v/ac2926071)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160722|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160722|型男大主厨|夫妻唛相害料理大赛：姜烧虱目鱼肚盖饭 & 千丝万缕|包伟铭,刘依纯,罗美玲,Terry,主厨:詹姆士,阿基师,吴秉承|[点击播放](http://www.acfun.tv/v/ac2923049_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|女人我最大|2016下半年 工作运势大解析|唐立淇,陈孙华,林立雯,梁赫群,魏如昀,刘书宏,陈薇,芳瑜|[点击播放](http://www.acfun.tv/v/ac2923077)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|上班这党事|姐妹好友的有些习惯 让人抓狂该怎么办？！|韦汝,Sam,Apple,玉菲|[点击播放](http://www.acfun.tv/v/ac2923070)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
