@@ -31,9 +31,9 @@
 |7.22|穿越康熙|[http://pan.baidu.com/s/1boNdZvL](http://pan.baidu.com/s/1boNdZvL)<br>密码:f6wf|
 |7.21|综艺大热门|[http://pan.baidu.com/s/1sl5WDuX](http://pan.baidu.com/s/1sl5WDuX)<br>密码:idqo|小明星大跟班|[http://pan.baidu.com/s/1eROtIQQ](http://pan.baidu.com/s/1eROtIQQ)<br>密码:fug9
 |7.21|小燕之夜|[http://pan.baidu.com/s/1o77O0Tc](http://pan.baidu.com/s/1o77O0Tc)<br>密码:wqm6|大学生了没|[http://pan.baidu.com/s/1eRRbAwU](http://pan.baidu.com/s/1eRRbAwU)<br>密码:cgbd
-|7.21|型男大主厨|[]()<br>密码:|女人我最大|[http://pan.baidu.com/s/1i5vxDnZ](http://pan.baidu.com/s/1i5vxDnZ)<br>密码:dsdr
+|7.21|型男大主厨|[http://pan.baidu.com/s/1hr5sRIW](http://pan.baidu.com/s/1hr5sRIW)<br>密码:l4l1|女人我最大|[http://pan.baidu.com/s/1i5vxDnZ](http://pan.baidu.com/s/1i5vxDnZ)<br>密码:dsdr
 |7.21|上班这党事|[http://pan.baidu.com/s/1c1PJKis](http://pan.baidu.com/s/1c1PJKis)<br>密码:lqsg|2分之一強|[]()<br>密码:
-|7.21|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
+|7.21|娱乐百分百|[http://pan.baidu.com/s/1dFlw0Zf](http://pan.baidu.com/s/1dFlw0Zf)<br>密码:xn1m|美凤有约|[]()<br>密码:
 |7.21|美食好简单|[http://pan.baidu.com/s/1geWzjxD](http://pan.baidu.com/s/1geWzjxD)<br>密码:2vga|国光帮帮忙|[]()<br>密码:
 |7.21|爱玩客|[]()<br>密码:|医师好辣|[http://pan.baidu.com/s/1jHJ1UaM](http://pan.baidu.com/s/1jHJ1UaM)<br>密码:j6dp
 |7.21|食尚玩家|[http://pan.baidu.com/s/1nvlgfJN](http://pan.baidu.com/s/1nvlgfJN)<br>密码:2yms|请你跟我这样过|[http://pan.baidu.com/s/1dEY5nZN](http://pan.baidu.com/s/1dEY5nZN)<br>密码:ywsx
