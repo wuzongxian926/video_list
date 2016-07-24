@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/23|環保時尚 愛美也要愛地球|来宾|[点击播放](http://www.acfun.tv/v/ac2928686)|[网盘下载](http://xz.twzy.tw)
 |2016/7/17|時尚show room|来宾|[点击播放](http://www.acfun.tv/v/ac2903213)|[网盘下载](http://xz.twzy.tw)
 |2016/7/16|穿搭icon夏日时尚Best Buy|关,夏和熙,凯希,唐葳,简恺蒂|[点击播放](http://www.acfun.tv/v/ac2901044)|[网盘下载](http://xz.twzy.tw)
 |2016/7/09|时尚巨星日吴思贤|吴思贤,廖允杰,夏和熙,宜柏|[点击播放](http://www.acfun.tv/v/ac2881816)|[网盘下载](http://xz.twzy.tw)

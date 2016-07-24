@@ -7,7 +7,7 @@
 |20160723|综艺玩很大|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2928607_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|超级夜总会|基隆七堵 澎恰恰 許效舜 苗可麗|来宾|[点击播放](http://www.acfun.tv/v/ac2927182)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160723|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|超爱美小姐|環保時尚 愛美也要愛地球|来宾|[点击播放](http://www.acfun.tv/v/ac2928686)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
