@@ -30,7 +30,7 @@
 |7.22|综艺大热门|[http://pan.baidu.com/s/1c2kI6FA](http://pan.baidu.com/s/1c2kI6FA)<br>密码:xsj9|小燕之夜|[http://pan.baidu.com/s/1c25bt08](http://pan.baidu.com/s/1c25bt08)<br>密码:is71
 |7.22|大学生了没|[http://pan.baidu.com/s/1dFLUnQh](http://pan.baidu.com/s/1dFLUnQh)<br>密码:qjng|型男大主厨|[http://pan.baidu.com/s/1o8phTiy](http://pan.baidu.com/s/1o8phTiy)<br>密码:huxh
 |7.22|女人我最大|[http://pan.baidu.com/s/1kVAmGJH](http://pan.baidu.com/s/1kVAmGJH)<br>密码:hrn1|上班这党事|[http://pan.baidu.com/s/1o7YSPqq](http://pan.baidu.com/s/1o7YSPqq)<br>密码:135u
-|7.22|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
+|7.22|2分之一強|[]()<br>密码:|娱乐百分百|[http://pan.baidu.com/s/1pLNBNnH](http://pan.baidu.com/s/1pLNBNnH)<br>密码:9j2c
 |7.22|美凤有约|[http://pan.baidu.com/s/1gfLQkMJ](http://pan.baidu.com/s/1gfLQkMJ)<br>密码:pbeu|美食好简单|[http://pan.baidu.com/s/1dEY5nY5](http://pan.baidu.com/s/1dEY5nY5)<br>密码:0q83
 |7.22|穿越康熙|[http://pan.baidu.com/s/1boNdZvL](http://pan.baidu.com/s/1boNdZvL)<br>密码:f6wf|
 |7.21|综艺大热门|[http://pan.baidu.com/s/1sl5WDuX](http://pan.baidu.com/s/1sl5WDuX)<br>密码:idqo|小明星大跟班|[http://pan.baidu.com/s/1eROtIQQ](http://pan.baidu.com/s/1eROtIQQ)<br>密码:fug9
@@ -44,7 +44,7 @@
 |7.21|穿越康熙|[http://pan.baidu.com/s/1slAGtnJ](http://pan.baidu.com/s/1slAGtnJ)<br>密码:y2yt|
 |7.20|综艺大热门|[http://pan.baidu.com/s/1dECQ0N3](http://pan.baidu.com/s/1dECQ0N3)<br>密码:2s7r|小明星大跟班|[http://pan.baidu.com/s/1c1Y7htQ](http://pan.baidu.com/s/1c1Y7htQ)<br>密码:hk7u
 |7.20|小燕之夜|[http://pan.baidu.com/s/1dFbmXI5](http://pan.baidu.com/s/1dFbmXI5)<br>密码:b809|大学生了没|[http://pan.baidu.com/s/1geXfi63](http://pan.baidu.com/s/1geXfi63)<br>密码:jikp
-|7.20|型男大主厨|[]()<br>密码:|女人我最大|[http://pan.baidu.com/s/1pKLt6l1](http://pan.baidu.com/s/1pKLt6l1)<br>密码:d0hs
+|7.20|型男大主厨|[http://pan.baidu.com/s/1gfPocQR](http://pan.baidu.com/s/1gfPocQR)<br>密码:le7u|女人我最大|[http://pan.baidu.com/s/1pKLt6l1](http://pan.baidu.com/s/1pKLt6l1)<br>密码:d0hs
 |7.20|上班这党事|[http://pan.baidu.com/s/1mhP3060](http://pan.baidu.com/s/1mhP3060)<br>密码:pbje|2分之一強|[]()<br>密码:
 |7.20|娱乐百分百|[http://pan.baidu.com/s/1o7X6N7k](http://pan.baidu.com/s/1o7X6N7k)<br>密码:m6rw|美凤有约|[]()<br>密码:
 |7.20|美食好简单|[http://pan.baidu.com/s/1kUCEje3](http://pan.baidu.com/s/1kUCEje3)<br>密码:2ncd|国光帮帮忙|[http://pan.baidu.com/s/1nvyDln7](http://pan.baidu.com/s/1nvyDln7)<br>密码:mghd
