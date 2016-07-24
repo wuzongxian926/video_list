@@ -4,6 +4,13 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160723|综艺玩很大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|超级夜总会|基隆七堵 澎恰恰 許效舜 苗可麗|来宾|[点击播放](http://www.acfun.tv/v/ac2927182)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|综艺大热门|讓國高中生尖叫的人 跟我們想得不一樣|来宾|[点击播放](http://www.acfun.tv/v/ac2919558)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|小燕之夜|一起走過彼此的美好年代！|来宾|[点击播放](http://www.acfun.tv/v/ac2926083)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|大学生了没|租屋總是運氣差！惡房東速速退散！|来宾|[点击播放](http://www.acfun.tv/v/ac2926071)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
