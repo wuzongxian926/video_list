@@ -18,7 +18,7 @@
 |20160722|女人我最大|2016下半年 工作运势大解析|唐立淇,陈孙华,林立雯,梁赫群,魏如昀,刘书宏,陈薇,芳瑜|[点击播放](http://www.acfun.tv/v/ac2923077)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|上班这党事|姐妹好友的有些习惯 让人抓狂该怎么办？！|韦汝,Sam,Apple,玉菲|[点击播放](http://www.acfun.tv/v/ac2923070)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160722|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160722|娱乐百分百|娱乐神爆挂|小猪,威廉,林彦君,李懿|[点击播放](http://www.acfun.tv/v/ac2928942)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|美食好简单|绿竹笋香菇肉燥 & 三杯绿竹笋|微微蔡|[点击播放](http://www.acfun.tv/v/ac2918602)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|穿越康熙|你也有这件吗？|来宾|[点击播放](http://www.acfun.tv/v/ac2919236)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
