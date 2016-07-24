@@ -26,7 +26,7 @@
 |20160721|小明星大跟班|说出来会出大事！！亲子告解大会！！|马如龙,黄圣雅,蔡菁文,大恺,吕可欣,蔡允洁,Christina,阿虎|[点击播放](http://www.acfun.tv/v/ac2916293)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|小燕之夜|小鲜肉来袭 帅欧爸们不怕！|包伟铭,柯叔元,江宏恩|[点击播放](http://www.acfun.tv/v/ac2920442)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|大学生了没|誰能比我慘 我的女友是刁蠻公主！|来宾|[点击播放](http://www.acfun.tv/v/ac2917712)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160721|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160721|型男大主厨|八分钟两道菜：醉腰花+子姜牛肉捲 & 五星级料理秀-国产麝香鸭：甲仙荔芋文创鸭+麝香鸭胸佐橙酒酱|洪都拉斯,张语昕,主厨:吴秉承,郭主义,阿基师,詹姆士|[点击播放](http://www.acfun.tv/v/ac2929243)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|女人我最大|姐的青春不能等 一次解决大龄女子困扰！|小布,吴依霖,廖家仪,王以路,梁佑南,黄秀慧|[点击播放](http://www.acfun.tv/v/ac2917535)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|上班这党事|一定会遇到的观光客 发生这些鸟事怎么办？！|Sam,何嘉文,Apple,刘雨柔|[点击播放](http://www.acfun.tv/v/ac2917630)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160721|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
