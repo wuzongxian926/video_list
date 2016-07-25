@@ -82,7 +82,7 @@
 |20160718|型男大主厨|郭师傅谁能上邮轮料理赛：扬州炒饭+酱爆牛肉 & 吴郭师谁能上邮轮料理赛：锅巴虾仁|黄小柔,刘品言,主厨:郭主义,吴秉承,阿基师,詹姆士|[点击播放](http://www.acfun.tv/v/ac2906459)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|女人我最大|一刀未剪！快速出门美发秘技！！|吴依霖,安琪,邱珮淇,纪卜心,芳瑜,金允乔|[点击播放](http://www.acfun.tv/v/ac2907954)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|上班这党事|朋友羡慕我的工作 其实听了很刺耳？！|沈玉琳,刘雨柔,韦汝,林萃芬|[点击播放](http://www.acfun.tv/v/ac2907345)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160718|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160718|2分之一強|航站情缘好浪漫？！揭开空姐神秘面纱~|张文绮,陈艾琳,林若亚|[点击播放](http://www.acfun.tv/v/ac2930443)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|娱乐百分百|百分百小巨蛋|小猪,威廉,李佳薇,Erika|[点击播放](http://www.acfun.tv/v/ac2910149)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160718|美食好简单|玉米番茄鸡 & 香辣茄子|温国智|[点击播放](http://www.acfun.tv/v/ac2905257)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
