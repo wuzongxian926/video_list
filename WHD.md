@@ -7,7 +7,7 @@
 ----|----|----|----|----
 |2015年|综艺玩很大高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/whd2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺玩很大高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/whd2014.md)|[网盘](http://xz.twzy.tw)
-|2016/7/23|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2928607_2)|[网盘](http://xz.twzy.tw)
+|2016/7/23|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2930098_2)|[网盘](http://xz.twzy.tw)
 |2016/7/16|日本犬山（下）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac2900779)|[网盘](http://xz.twzy.tw)
 |2016/7/09|日本犬山（上）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[播放](http://www.acfun.tv/v/ac2883446)|[网盘](http://xz.twzy.tw)
 |2016/7/02|嘉义 命运金钱蛋（下）|吴宗宪,Kid,浩角翔起(浩子,阿翔),谢忻,赵孟姿,詹子晴,梁以辰,黄豪平|[播放](http://www.acfun.tv/v/ac2865370)|[网盘](http://xz.twzy.tw)

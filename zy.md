@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160723|综艺玩很大|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2928607_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160723|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|综艺玩很大|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2930098_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|天才冲冲冲|你是Word演 & 联想Tempo & Where Tempo|辜莞允,徐小可,李冠仪,王灿,NONO,赖慧如,玉兔,周定纬,唐从圣,曲艾玲|[点击播放](http://www.acfun.tv/v/ac2930098)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|超级夜总会|基隆七堵 澎恰恰 許效舜 苗可麗|来宾|[点击播放](http://www.acfun.tv/v/ac2927182)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|超爱美小姐|環保時尚 愛美也要愛地球|来宾|[点击播放](http://www.acfun.tv/v/ac2928686)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
