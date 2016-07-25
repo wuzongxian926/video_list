@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/7/25|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |来宾|[点击播放](http://www.acfun.tv/v/ac2932508)|[网盘](http://xz.twzy.tw)
 |2016/7/22|讓國高中生尖叫的人 跟我們想得不一樣!|来宾|[点击播放](http://www.acfun.tv/v/ac2919558)|[网盘](http://xz.twzy.tw)
 |2016/7/21|毕业照帅哥美女！好想认识这个同学喔！|老田,李懿,郭鑫|[点击播放](http://www.acfun.tv/v/ac2916154)|[网盘](http://xz.twzy.tw)
 |2016/7/20|翻白眼吧! 最荒謬天兵助理故事大賽!|梁赫群,五熊,沈玉琳,何嘉文,哈孝远,陈樱文,撒基努,小茉莉|[点击播放](http://www.acfun.tv/v/ac2912450)|[网盘](http://xz.twzy.tw)

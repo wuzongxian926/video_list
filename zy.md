@@ -4,6 +4,23 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160725|综艺大热门|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |来宾|[点击播放](http://www.acfun.tv/v/ac2932508)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|穿越康熙|明星媽咪育兒妙招|来宾|[点击播放](http://www.acfun.tv/v/ac2932495)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |7.24|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
 |7.24|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
 |7.24|没玩没了|[]()<br>密码:|GOGO捷运|[]()<br>密码:
@@ -14,7 +31,7 @@
 |20160723|超爱美小姐|環保時尚 愛美也要愛地球|来宾|[点击播放](http://www.acfun.tv/v/ac2928686)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160723|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160723|娱乐百分百|百分百遊戲王|小猪,恺乐,小优,BOI!(信维,翔永),夏和熙,Amanda,黄乔歆|[点击播放](http://www.acfun.tv/v/ac2932511)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|综艺大热门|讓國高中生尖叫的人 跟我們想得不一樣|来宾|[点击播放](http://www.acfun.tv/v/ac2919558)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|小燕之夜|一起走過彼此的美好年代！|来宾|[点击播放](http://www.acfun.tv/v/ac2926083)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160722|大学生了没|租屋總是運氣差！惡房東速速退散！|来宾|[点击播放](http://www.acfun.tv/v/ac2926071)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
