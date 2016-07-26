@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160725|综艺大热门|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |来宾|[点击播放](http://www.acfun.tv/v/ac2932508)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160725|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|综艺大热门|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |Vicky,何妤玟,杨羽霓,依依,陈樱文,钟欣怡,韦汝|[点击播放](http://www.acfun.tv/v/ac2932570)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|小明星大跟班|电影演的是真的？！国军神秘特殊单位！！|陈为民,黄豪平,金妮,张芯瑜|[点击播放](http://www.acfun.tv/v/ac2932547)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -14,17 +14,20 @@
 |20160725|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160725|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|美食好简单|宫保猪尾 & 铁板牛小排|温国智|[点击播放](http://www.acfun.tv/v/ac2932592)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160725|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|爱玩客|不可能的结合！台北热点直播战|小钟,鲔鱼,宇珊|[点击播放](http://www.acfun.tv/v/ac2932554)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|穿越康熙|明星媽咪育兒妙招|来宾|[点击播放](http://www.acfun.tv/v/ac2932495)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|7.24|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|7.24|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
-|7.24|没玩没了|[]()<br>密码:|GOGO捷运|[]()<br>密码:
-|7.24|GoGoTaiwan|[]()<br>密码:|
+|20160724|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|综艺大集合|新北市·土城|林道远,马丁,郭忠佑,林辉瑝,Una,恩齐儿,白家绮|[点击播放](http://www.acfun.tv/v/ac2932535)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|没玩没了|决战宜兰 & 有话靠北说 & 来电五十|徐乃麟,曾国城,庹宗康,康康,郭子乾,方芳芳,撒基努,张文绮,林彦君,邱慧雯,张立东|[点击播放](http://www.acfun.tv/v/ac2932563)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|综艺玩很大|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2930098_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|天才冲冲冲|你是Word演 & 联想Tempo & Where Tempo|辜莞允,徐小可,李冠仪,王灿,NONO,赖慧如,玉兔,周定纬,唐从圣,曲艾玲|[点击播放](http://www.acfun.tv/v/ac2930098)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|超级夜总会|基隆七堵 澎恰恰 許效舜 苗可麗|来宾|[点击播放](http://www.acfun.tv/v/ac2927182)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
