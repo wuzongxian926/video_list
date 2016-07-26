@@ -31,7 +31,7 @@
 |7.26|美食好简单|[http://pan.baidu.com/s/1hsI04Ji](http://pan.baidu.com/s/1hsI04Ji)<br>密码:4dhu|国光帮帮忙|[http://pan.baidu.com/s/1mh9oFUg](http://pan.baidu.com/s/1mh9oFUg)<br>密码:8kwq
 |7.26|爱玩客|[http://pan.baidu.com/s/1qXZ4Utu](http://pan.baidu.com/s/1qXZ4Utu)<br>密码:6pvb|医师好辣|[]()<br>密码:
 |7.26|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
-|7.26|穿越康熙|[]()<br>密码:|流行新势力|[]()<br>密码:
+|7.26|穿越康熙|[http://pan.baidu.com/s/1kV0J3Dl](http://pan.baidu.com/s/1kV0J3Dl)<br>密码:fosp|流行新势力|[]()<br>密码:
 |7.25|综艺大热门|[http://pan.baidu.com/s/1i557lpb](http://pan.baidu.com/s/1i557lpb)<br>密码:vr68|小明星大跟班|[http://pan.baidu.com/s/1kUHyjWz](http://pan.baidu.com/s/1kUHyjWz)<br>密码:cowr
 |7.25|小燕之夜|[http://pan.baidu.com/s/1bpFmSJ9](http://pan.baidu.com/s/1bpFmSJ9)<br>密码:lrut|大学生了没|[http://pan.baidu.com/s/1b4jxaI](http://pan.baidu.com/s/1b4jxaI)<br>密码:yqy4
 |7.25|型男大主厨|[]()<br>密码:|女人我最大|[http://pan.baidu.com/s/1i5wdPPj](http://pan.baidu.com/s/1i5wdPPj)<br>密码:o8rg
