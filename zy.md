@@ -7,7 +7,7 @@
 |20160725|综艺大热门|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |Vicky,何妤玟,杨羽霓,依依,陈樱文,钟欣怡,韦汝|[点击播放](http://www.acfun.tv/v/ac2932570)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|小明星大跟班|电影演的是真的？！国军神秘特殊单位！！|陈为民,黄豪平,金妮,张芯瑜|[点击播放](http://www.acfun.tv/v/ac2932547)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160725|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|大学生了没|人工美女的告白|来宾|[点击播放](http://www.acfun.tv/v/ac2934653)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|上班这党事|路上就会遇到这些鸟事 快要爆炸该怎么办？|余皓然,GiGi,Sam,杨皓如|[点击播放](http://www.acfun.tv/v/ac2933881)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
