@@ -27,7 +27,7 @@
 |20160724|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160724|没玩没了|决战宜兰 & 有话靠北说 & 来电五十|徐乃麟,曾国城,庹宗康,康康,郭子乾,方芳芳,撒基努,张文绮,林彦君,邱慧雯,张立东|[点击播放](http://www.acfun.tv/v/ac2932563)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160724|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160724|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160724|GoGoTaiwan|Ep215 雲林土庫 塗褲老拾光老生活老味道|来宾|[点击播放](http://www.acfun.tv/v/ac2933610)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|综艺玩很大|重庆 西阳（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2930098_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|天才冲冲冲|你是Word演 & 联想Tempo & Where Tempo|辜莞允,徐小可,李冠仪,王灿,NONO,赖慧如,玉兔,周定纬,唐从圣,曲艾玲|[点击播放](http://www.acfun.tv/v/ac2930098)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160723|超级夜总会|基隆七堵 澎恰恰 許效舜 苗可麗|来宾|[点击播放](http://www.acfun.tv/v/ac2927182)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
