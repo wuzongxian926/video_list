@@ -25,7 +25,7 @@
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |7.26|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1sl1Ti2L](http://pan.baidu.com/s/1sl1Ti2L)<br>密码:e218
 |7.26|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|7.26|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|7.26|型男大主厨|[http://pan.baidu.com/s/1gfoGxr1](http://pan.baidu.com/s/1gfoGxr1)<br>密码:q7cn|女人我最大|[]()<br>密码:
 |7.26|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.26|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |7.26|美食好简单|[http://pan.baidu.com/s/1hsI04Ji](http://pan.baidu.com/s/1hsI04Ji)<br>密码:4dhu|国光帮帮忙|[]()<br>密码:
