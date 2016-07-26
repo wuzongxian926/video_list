@@ -29,7 +29,7 @@
 |7.26|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.26|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1dFbTo7R](http://pan.baidu.com/s/1dFbTo7R)<br>密码:8gc9
 |7.26|美食好简单|[http://pan.baidu.com/s/1hsI04Ji](http://pan.baidu.com/s/1hsI04Ji)<br>密码:4dhu|国光帮帮忙|[]()<br>密码:
-|7.26|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|7.26|爱玩客|[http://pan.baidu.com/s/1qXZ4Utu](http://pan.baidu.com/s/1qXZ4Utu)<br>密码:6pvb|医师好辣|[]()<br>密码:
 |7.26|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.26|穿越康熙|[]()<br>密码:|流行新势力|[]()<br>密码:
 |7.25|综艺大热门|[http://pan.baidu.com/s/1i557lpb](http://pan.baidu.com/s/1i557lpb)<br>密码:vr68|小明星大跟班|[http://pan.baidu.com/s/1kUHyjWz](http://pan.baidu.com/s/1kUHyjWz)<br>密码:cowr
