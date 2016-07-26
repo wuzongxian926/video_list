@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160725|综艺大热门|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |Vicky,何妤玟,杨羽霓,依依,陈樱文,钟欣怡,韦汝|[点击播放](http://www.acfun.tv/v/ac2932570)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|综艺大热门|當了媽就跟不上流行,誰是最不Fashion的媽媽藝人! |Vicky,何妤玟,杨羽霓,依依,陈樱文,钟欣怡,韦汝|[点击播放](http://www.acfun.tv/v/ac2932570)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|小明星大跟班|电影演的是真的？！国军神秘特殊单位！！|陈为民,黄豪平,金妮,张芯瑜|[点击播放](http://www.acfun.tv/v/ac2932547)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|小燕之夜|最強笑話王！|来宾|[点击播放](http://www.acfun.tv/v/ac2934713)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|大学生了没|人工美女的告白|来宾|[点击播放](http://www.acfun.tv/v/ac2934653)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
