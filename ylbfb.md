@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/26|粉Meeting|恺乐,Wish,Masha,林宥嘉|[点击播放](http://www.acfun.tv/v/ac2938528)|[网盘下载](http://xz.twzy.tw)
 |2016/7/25|百分百大对抗|小猪,恺乐,毛弟,Wish,Masha,李懿,凯莉|[点击播放](http://www.acfun.tv/v/ac2935723)|[网盘下载](http://xz.twzy.tw)
 |2016/7/23|百分百遊戲王|小猪,恺乐,小优,BOI(信维,翔永),夏和熙,Amanda,黄乔歆|[点击播放](http://www.acfun.tv/v/ac2932511)|[网盘下载](http://xz.twzy.tw)
 |2016/7/22|娱乐神爆挂|小猪,威廉,林彦君,李懿|[点击播放](http://www.acfun.tv/v/ac2928942)|[网盘下载](http://xz.twzy.tw)
