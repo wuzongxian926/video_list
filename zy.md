@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160727|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160727|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160727|综艺大热门|美食家尊嚴之爭！誰能征服老外的胃？！|来宾|[点击播放](http://www.acfun.tv/v/ac2938758)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160727|小明星大跟班|最不想被認出來的那一刻　明星就診尷尬事！|来宾|[点击播放](http://www.acfun.tv/v/ac2938770)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
