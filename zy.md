@@ -37,7 +37,7 @@
 |20160725|爱玩客|不可能的结合！台北热点直播战|小钟,鲔鱼,宇珊|[点击播放](http://www.acfun.tv/v/ac2932554)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|医师好辣|身体慢性中毒 你中招了吗？|杨皓如,Eason,甄莉|[点击播放](http://www.acfun.tv/v/ac2935734)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160725|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160725|请你跟<br>我这样过|有吃有保庇？！超级食物又来啦？！|曾雅兰,Paul,李懿,专家:洪素卿,谭敦慈,李婉萍|[点击播放](http://www.acfun.tv/v/ac2936632)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160725|穿越康熙|明星媽咪育兒妙招|来宾|[点击播放](http://www.acfun.tv/v/ac2932495)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160724|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160724|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
