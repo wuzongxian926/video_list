@@ -14,7 +14,7 @@
 |20160728|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|美凤有约|天然保健食品 吃醋有益健康|余政鸿,爱子妈妈(醋味达人)|[点击播放](http://www.acfun.tv/v/ac2941814)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160728|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160728|美食好简单|鱿鱼烤麸肉 & 冬粉拌豆干蛋酥|温国智|[点击播放](http://www.acfun.tv/v/ac2942200)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|爱玩客|全台放暑假 老外就是这样玩|吴凤,贺少侠|[点击播放](http://www.acfun.tv/v/ac2942015)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
