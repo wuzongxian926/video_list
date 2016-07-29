@@ -6,7 +6,7 @@
 ----|----|----|----|----|----|----
 |20160728|综艺大热门|神啊！可以再給我一次機會！讓我見到你嗎？|林采缇,洪都拉斯,刘书宏,成语荞,大飞|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|小明星大跟班|這麼Man的工作　竟然有美女？！|马国毕,班杰,Apple,千又|[点击播放](http://www.acfun.tv/v/ac2941678)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160728|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160728|小燕之夜|組團是容易的事嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2942937)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|大学生了没|大小胸讓你很困擾？|来宾|[点击播放](http://www.acfun.tv/v/ac2942861)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|型男大主厨|八分钟超省时办桌菜-珍珠鸡：红油芝麻鸡+芥末鸡球 & 办桌手路菜大赏-珍珠鸡：富贵珍珠烧鸡+逆天宫保干烹鸡|陈瑀希,鲔鱼,李罗,主厨:郭主义,吴秉承,阿基师|[点击播放](http://www.acfun.tv/v/ac2941825)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
