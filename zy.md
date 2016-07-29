@@ -35,7 +35,7 @@
 |20160727|综艺大热门|美食家尊嚴之爭！誰能征服老外的胃？！|来宾|[点击播放](http://www.acfun.tv/v/ac2938758)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|小明星大跟班|最不想被認出來的那一刻　明星就診尷尬事！|来宾|[点击播放](http://www.acfun.tv/v/ac2938770)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|小燕之夜|当个孕妇真的很辛苦！|郭昱晴,禹安,黄小柔,王以路,陈保仁,邱锦伶|[点击播放](http://www.acfun.tv/v/ac2942106)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160727|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160727|大学生了没|最新诈骗实录！为什么你还执迷不悟！|曾咏熙,常金兰(反诈骗专家),陈亮廷(面相老师)|[点击播放](http://www.acfun.tv/v/ac2944250_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|型男大主厨|妈妈拼很大料理赛：鸡同鸭酱 & 巷口咸粥|张文绮&欧凤玲,大根&大根妈,主厨:吴秉承,阿基师,詹姆士,郭主义|[点击播放](http://www.acfun.tv/v/ac2941585_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|女人我最大|不论你是大胸小胸 只要这样穿就能抬头挺胸|Kevin,亦帆,洪棠,飞飞,Christine,俐妍|[点击播放](http://www.acfun.tv/v/ac2942397)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160727|上班这党事|英国脱欧专家怎么看 赚钱的重点在哪里？！|孙庆龙,郭俊宏,卢燕俐,黄世聪|[点击播放](http://www.acfun.tv/v/ac2942679)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
