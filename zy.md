@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160728|综艺大热门|神啊！可以再給我一次機會！讓我見到你嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160728|小明星大跟班|這麼Man的工作　竟然有美女？！|来宾|[点击播放](http://www.acfun.tv/v/ac2941678)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160728|综艺大热门|神啊！可以再給我一次機會！讓我見到你嗎？|林采缇,洪都拉斯,刘书宏,成语荞,大飞|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160728|小明星大跟班|這麼Man的工作　竟然有美女？！|马国毕,班杰,Apple,千又|[点击播放](http://www.acfun.tv/v/ac2941678)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -13,7 +13,7 @@
 |20160728|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160728|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160728|美凤有约|天然保健食品 吃醋有益健康|余政鸿,爱子妈妈(醋味达人)|[点击播放](http://www.acfun.tv/v/ac2941814)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
