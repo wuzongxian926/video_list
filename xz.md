@@ -45,7 +45,7 @@
 |7.27|娱乐百分百|[http://pan.baidu.com/s/1gfJiIeZ](http://pan.baidu.com/s/1gfJiIeZ)<br>密码:f0t5|美凤有约|[http://pan.baidu.com/s/1cqm7TW](http://pan.baidu.com/s/1cqm7TW)<br>密码:ibua
 |7.27|美食好简单|[http://pan.baidu.com/s/1sl5qZIt](http://pan.baidu.com/s/1sl5qZIt)<br>密码:31jd|国光帮帮忙|[http://pan.baidu.com/s/1jIlS6mq](http://pan.baidu.com/s/1jIlS6mq)<br>密码:m9gp
 |7.27|爱玩客|[http://pan.baidu.com/s/1qYy73WC](http://pan.baidu.com/s/1qYy73WC)<br>密码:jl9i|医师好辣|[http://pan.baidu.com/s/1gfbjxNd](http://pan.baidu.com/s/1gfbjxNd)<br>密码:56dz
-|7.27|食尚玩家|[http://pan.baidu.com/s/1bo2fDuf](http://pan.baidu.com/s/1bo2fDuf)<br>密码:5y59|请你跟我这样过|[]()<br>密码:
+|7.27|食尚玩家|[http://pan.baidu.com/s/1bo2fDuf](http://pan.baidu.com/s/1bo2fDuf)<br>密码:5y59|请你跟我这样过|[http://pan.baidu.com/s/1sliW481](http://pan.baidu.com/s/1sliW481)<br>密码:7hnv
 |7.27|穿越康熙|[http://pan.baidu.com/s/1mizvAEO](http://pan.baidu.com/s/1mizvAEO)<br>密码:d5oc|大陆寻奇|[]()<br>密码:|
 |7.26|综艺大热门|[http://pan.baidu.com/s/1slxj15j](http://pan.baidu.com/s/1slxj15j)<br>密码:ep5t|小明星大跟班|[http://pan.baidu.com/s/1sl1Ti2L](http://pan.baidu.com/s/1sl1Ti2L)<br>密码:e218
 |7.26|小燕之夜|[http://pan.baidu.com/s/1sl6CUPv](http://pan.baidu.com/s/1sl6CUPv)<br>密码:kyeu|大学生了没|[http://pan.baidu.com/s/1i5jmFcx](http://pan.baidu.com/s/1i5jmFcx)<br>密码:vgmn
