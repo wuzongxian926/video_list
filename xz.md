@@ -33,7 +33,7 @@
 |7.28|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |7.28|穿越康熙|[]()<br>密码:|
 |7.27|综艺大热门|[http://pan.baidu.com/s/1hrZfwxA](http://pan.baidu.com/s/1hrZfwxA)<br>密码:9coo|小明星大跟班|[http://pan.baidu.com/s/1hr7vbTE](http://pan.baidu.com/s/1hr7vbTE)<br>密码:hjhr
-|7.27|小燕之夜|[]()<br>密码:|大学生了没|[http://pan.baidu.com/s/1gfugi3p](http://pan.baidu.com/s/1gfugi3p)<br>密码:nwi6
+|7.27|小燕之夜|[http://pan.baidu.com/s/1hskALd6](http://pan.baidu.com/s/1hskALd6)<br>密码:vlay|大学生了没|[http://pan.baidu.com/s/1gfugi3p](http://pan.baidu.com/s/1gfugi3p)<br>密码:nwi6
 |7.27|型男大主厨|[http://pan.baidu.com/s/1jIg2Mfs](http://pan.baidu.com/s/1jIg2Mfs)<br>密码:ejhb|女人我最大|[]()<br>密码:
 |7.27|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |7.27|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1cqm7TW](http://pan.baidu.com/s/1cqm7TW)<br>密码:ibua
