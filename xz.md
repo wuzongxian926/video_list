@@ -24,7 +24,7 @@
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |7.29|综艺大热门|[]()<br>密码:|小燕之夜|[]()<br>密码:
-|7.29|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
+|7.29|大学生了没|[]()<br>密码:|型男大主厨|[http://pan.baidu.com/s/1slRBMkX](http://pan.baidu.com/s/1slRBMkX)<br>密码:ks0o
 |7.29|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
 |7.29|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
 |7.29|美凤有约|[http://pan.baidu.com/s/1c2wom1i](http://pan.baidu.com/s/1c2wom1i)<br>密码:95r4|美食好简单|[http://pan.baidu.com/s/1c2I8OTU](http://pan.baidu.com/s/1c2I8OTU)<br>密码:nmz9
