@@ -8,7 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
-|2016/7/27|神啊！可以再給我一次機會！讓我見到你嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)
+|2016/7/28|神啊！可以再給我一次機會！讓我見到你嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)
 |2016/7/27|美食家尊嚴之爭！誰能征服老外的胃？！|来宾|[点击播放](http://www.acfun.tv/v/ac2938758)|[网盘](http://xz.twzy.tw)
 |2016/7/26|小姐！妳不說！我也知道妳做哪一行！！|来宾|[点击播放](http://www.acfun.tv/v/ac2935783)|[网盘](http://xz.twzy.tw)
 |2016/7/25|當了媽就跟不上流行 誰是最不Fashion的媽媽藝人! |Vicky,何妤玟,杨羽霓,依依,陈樱文,钟欣怡,韦汝|[点击播放](http://www.acfun.tv/v/ac2932508)|[网盘](http://xz.twzy.tw)
