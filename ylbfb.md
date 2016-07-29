@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/28|罗志祥庆生会|恺乐,威廉,罗志祥,李懿,茵茵,夏语心,拐拐,熊熊,潘映竹|[点击播放](http://www.acfun.tv/v/ac2943810)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|粉Meeting|恺乐,威廉,蔡昌宪,张立昂|[点击播放](http://www.acfun.tv/v/ac2942598)|[网盘下载](http://xz.twzy.tw)
 |2016/7/26|粉Meeting|恺乐,Wish,Masha,林宥嘉|[点击播放](http://www.acfun.tv/v/ac2938528)|[网盘下载](http://xz.twzy.tw)
 |2016/7/25|百分百大对抗|小猪,恺乐,毛弟,Wish,Masha,李懿,凯莉|[点击播放](http://www.acfun.tv/v/ac2935723)|[网盘下载](http://xz.twzy.tw)
