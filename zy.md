@@ -4,12 +4,19 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160730|综艺玩很大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|超爱美小姐|告别久坐肉肉女|庄碧玉,LULU,小甜甜,玉兔,MEIMEI|[点击播放](http://www.acfun.tv/v/ac2946198)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|综艺大热门|各界運動好手來襲！藝人們你玩得起嗎！？|来宾|[点击播放](http://www.acfun.tv/v/ac2944704)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160729|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160729|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160729|小燕之夜|想不到！原来他们收藏这个？|柯有伦,林予晞,安哲,方志友,许孟哲,大飞|[点击播放](http://www.acfun.tv/v/ac2946157)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160729|大学生了没|2016必败团购美食！！今晚你想吃哪一道呢？|Erica,Iris,伊登,小花,里维,张瑀庭|[点击播放](http://www.acfun.tv/v/ac2945940)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|型男大主厨|華流新星！料理初階檢定考！！|来宾|[点击播放](http://www.acfun.tv/v/ac2944414)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160729|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160729|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160729|女人我最大|2016下半年健康运|唐立淇,小祯,林立雯,王思佳,刘书宏,Christine,王瞳|[点击播放](http://www.acfun.tv/v/ac2945988)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160729|上班这党事|男人也爱碎碎念 双重标准很烦怎么办？！|沈玉琳,刘雨柔,GiGi,林萃芬|[点击播放](http://www.acfun.tv/v/ac2946047)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|美凤有约|日本冈山之旅|陈美凤|[点击播放](http://www.acfun.tv/v/ac2944002)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
