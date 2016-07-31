@@ -21,7 +21,7 @@
 |20160729|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|美凤有约|日本冈山之旅|陈美凤|[点击播放](http://www.acfun.tv/v/ac2944002)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160729|美食好简单|药膳冷盘 & 鸡汁芹菜冬粉汤|微微蔡|[点击播放](http://www.acfun.tv/v/ac2944009)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160729|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160729|穿越康熙|出國旅遊最怕遇到這些鳥事|来宾|[点击播放](http://www.acfun.tv/v/ac2947766)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|综艺大热门|神啊！可以再給我一次機會！讓我見到你嗎？|林采缇,洪都拉斯,刘书宏,成语荞,大飞|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|小明星大跟班|這麼Man的工作　竟然有美女？！|马国毕,班杰,Apple,千又|[点击播放](http://www.acfun.tv/v/ac2941678)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160728|小燕之夜|組團是容易的事嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2942937)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
