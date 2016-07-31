@@ -4,8 +4,15 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160731|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160731|超爱美小姐|逆齡美人保養術|来宾|[点击播放](http://www.acfun.tv/v/ac2948847)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160731|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160731|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160731|没玩没了|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160731|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160731|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|综艺玩很大|重庆酉阳张家界（下）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2947347)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160730|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|天才冲冲冲|会演是英雄 & EAR传耳ABC & 接龙Tempo|钱俞安,贝童彤,五熊,潘若迪,小娴,小钟,曹雅雯,夏宇童,杨小黎,Junior|[点击播放](http://www.acfun.tv/v/ac2948824)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|超爱美小姐|告别久坐肉肉女|庄碧玉,LULU,小甜甜,玉兔,MEIMEI|[点击播放](http://www.acfun.tv/v/ac2946198)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

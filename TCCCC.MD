@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/30|会演是英雄 & EAR传耳ABC & 接龙Tempo|钱俞安,贝童彤,五熊,潘若迪,小娴,小钟,曹雅雯,夏宇童,杨小黎,Junior|[点击播放](http://www.acfun.tv/v/ac2948824)|[网盘下载](http://xz.twzy.tw)
 |2016/7/23|你是Word演 & 联想Tempo & Where Tempo|辜莞允,徐小可,李冠仪,王灿,NONO,赖慧如,玉兔,周定纬,唐从圣,曲艾玲|[点击播放](http://www.acfun.tv/v/ac2930098)|[网盘下载](http://xz.twzy.tw)
 |2016/7/16|不可能的默契 & 联想Tempo & 看你怎么说|陈景炀,郭婷筠,曹雅雯,陈志强,蒋伟文,沈玉琳,佩佩,依依,Apple,李兴文|[点击播放](http://www.acfun.tv/v/ac2902267)|[网盘下载](http://xz.twzy.tw)
 |2016/7/09|Where Tempo & EAR传耳ABC & 你是Word演|陈怡婷,林彦君,Terry,夏语心,阿翔,陈子玄,杨子仪,陈珮骐,沈世朋,伊正|[点击播放](http://www.acfun.tv/v/ac2885484)|[网盘下载](http://xz.twzy.tw)
