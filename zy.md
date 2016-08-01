@@ -11,7 +11,7 @@
 |20160731|没玩没了|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160731|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160731|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160730|综艺玩很大|重庆酉阳张家界（下）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2947347)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160730|综艺玩很大|重庆酉阳张家界（下）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac2950311)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|天才冲冲冲|会演是英雄 & EAR传耳ABC & 接龙Tempo|钱俞安,贝童彤,五熊,潘若迪,小娴,小钟,曹雅雯,夏宇童,杨小黎,Junior|[点击播放](http://www.acfun.tv/v/ac2948824)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160730|超爱美小姐|告别久坐肉肉女|庄碧玉,LULU,小甜甜,玉兔,MEIMEI|[点击播放](http://www.acfun.tv/v/ac2946198)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
