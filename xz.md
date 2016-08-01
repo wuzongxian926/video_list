@@ -27,7 +27,7 @@
 |7.31|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
 |7.31|没玩没了|[]()<br>密码:|GOGO捷运|[]()<br>密码:
 |7.31|GoGoTaiwan|[]()<br>密码:|
-|7.30|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
+|7.30|综艺玩很大|[http://pan.baidu.com/s/1eRANhqa](http://pan.baidu.com/s/1eRANhqa)<br>密码:zj47|天才冲冲冲|[]()<br>密码:
 |7.30|超级夜总会|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1slQpTOp](http://pan.baidu.com/s/1slQpTOp)<br>密码:ab29
 |7.30|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
 |7.30|娱乐百分百|[]()<br>密码:|大陆寻奇|[]()<br>密码:|
