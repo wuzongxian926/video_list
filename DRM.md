@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/8/01|年紀越大脾氣越差？老藝人不好相處排行榜！！【上】|来宾|[点击播放](http://www.acfun.tv/v/ac2953531)|[网盘](http://xz.twzy.tw)
 |2016/7/29|各界運動好手來襲！藝人們你玩得起嗎！？|来宾|[点击播放](http://www.acfun.tv/v/ac2944704)|[网盘](http://xz.twzy.tw)
 |2016/7/28|神啊！可以再給我一次機會！讓我見到你嗎？|林采缇,洪都拉斯,刘书宏,成语荞,大飞|[点击播放](http://www.acfun.tv/v/ac2941644)|[网盘](http://xz.twzy.tw)
 |2016/7/27|美食家尊嚴之爭！誰能征服老外的胃？！|来宾|[点击播放](http://www.acfun.tv/v/ac2938758)|[网盘](http://xz.twzy.tw)
