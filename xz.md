@@ -23,13 +23,13 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
-|8.3|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
+|8.3|综艺大热门|[http://pan.baidu.com/s/1pLdBmsF](http://pan.baidu.com/s/1pLdBmsF)<br>密码:goor|小明星大跟班|[http://pan.baidu.com/s/1cMbaKA](http://pan.baidu.com/s/1cMbaKA)<br>密码:hzmn
 |8.3|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
 |8.3|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |8.3|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |8.3|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1miEVaeW](http://pan.baidu.com/s/1miEVaeW)<br>密码:diah
-|8.3|美食好简单|[http://pan.baidu.com/s/1eS9H9SY](http://pan.baidu.com/s/1eS9H9SY)<br>密码:jicz|国光帮帮忙|[]()<br>密码:
-|8.3|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|8.3|美食好简单|[http://pan.baidu.com/s/1eS9H9SY](http://pan.baidu.com/s/1eS9H9SY)<br>密码:jicz|国光帮帮忙|[http://pan.baidu.com/s/1slIOCjF](http://pan.baidu.com/s/1slIOCjF)<br>密码:yngw
+|8.3|爱玩客|[http://pan.baidu.com/s/1eS8vEKE](http://pan.baidu.com/s/1eS8vEKE)<br>密码:s0ns|医师好辣|[]()<br>密码:
 |8.3|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |8.3|穿越康熙|[http://pan.baidu.com/s/1kVbb591](http://pan.baidu.com/s/1kVbb591)<br>密码:30zc
 |8.2|综艺大热门|[http://pan.baidu.com/s/1bpgH0sv](http://pan.baidu.com/s/1bpgH0sv)<br>密码:33dd|小明星大跟班|[http://pan.baidu.com/s/1sl3p4EL](http://pan.baidu.com/s/1sl3p4EL)<br>密码:eibe
