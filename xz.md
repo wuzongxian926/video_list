@@ -54,6 +54,7 @@
 |7.31|综艺大集合|[http://pan.baidu.com/s/1nuMesGT](http://pan.baidu.com/s/1nuMesGT)<br>密码:h6zi|台湾名人堂|[]()<br>密码:
 |7.31|没玩没了|[http://pan.baidu.com/s/1eS7FFnO](http://pan.baidu.com/s/1eS7FFnO)<br>密码:t0p4|GOGO捷运|[http://pan.baidu.com/s/1gfNmFWf](http://pan.baidu.com/s/1gfNmFWf)<br>密码:g6uu
 |7.31|GoGoTaiwan|[http://pan.baidu.com/s/1bo8l735](http://pan.baidu.com/s/1bo8l735)<br>密码:7du8|
+|7.30|综艺玩很大|[http://pan.baidu.com/s/1jIbJ9oq](http://pan.baidu.com/s/1jIbJ9oq)<br>密码:4uiy|天才冲冲冲|[]()<br>密码:
 |7.30|超级夜总会|[http://pan.baidu.com/s/1cDn43G](http://pan.baidu.com/s/1cDn43G)<br>密码:emx4|超爱美小姐|[http://pan.baidu.com/s/1slQpTOp](http://pan.baidu.com/s/1slQpTOp)<br>密码:ab29
 |7.30|舞力全开|[]()<br>密码:|全民一起来|[http://pan.baidu.com/s/1eRPGuQm](http://pan.baidu.com/s/1eRPGuQm)<br>密码:924r
 |7.30|娱乐百分百|[http://pan.baidu.com/s/1jIvwthG](http://pan.baidu.com/s/1jIvwthG)<br>密码:wj5f|大陆寻奇|[]()<br>密码:|
