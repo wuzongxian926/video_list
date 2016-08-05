@@ -37,7 +37,7 @@
 |20160803|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160803|穿越康熙|這樣穿會不會太犯規？！|来宾|[点击播放](http://www.bilibili.com/video/av5660493/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160803|穿越康熙|這樣穿會不會太犯規？|来宾|[点击播放](http://www.bilibili.com/video/av5660493/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
