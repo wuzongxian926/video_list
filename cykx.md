@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/04|他們靠這賺到人生第一桶金|来宾|[点击播放](http://www.bilibili.com/video/av5660414/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/03|這樣穿會不會太犯規？|来宾|[点击播放](http://www.bilibili.com/video/av5660493/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|出國旅遊最怕遇到這些鳥事|来宾|[点击播放](http://www.acfun.tv/v/ac2947766)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|女人们对他又爱又恨？|来宾|[点击播放](http://www.acfun.tv/v/ac2942487)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|藝人意想不到的破英文|来宾|[点击播放](http://www.acfun.tv/v/ac2938702)|[网盘下载](http://xz.twzy.tw)
