@@ -52,7 +52,7 @@
 |20160802|小明星大跟班|我的愿望是世界和平！！选美皇后生死斗！！|小钟,刘伊心,BOi(信维,翔永),蔡昀羲,丁文茵,陈怡文,力英桂,高曼容|[点击播放](http://www.tudou.com/programs/view/MI6yWoLc66w/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160802|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160802|型男大主厨|夏日澎湖海鮮季料理大賽！！|来宾|[点击播放](http://www.acfun.tv/v/ac3000727)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
