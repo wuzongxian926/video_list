@@ -42,7 +42,7 @@
 |20160803|娱乐百分百|百分百LIVE|恺乐,威廉,霍正奇,莫棠予|[点击播放](http://www.bilibili.com/video/av5665289/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160803|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160803|国光帮帮忙|男人整成這樣是為什麼呢？|来宾|[点击播放](http://www.acfun.tv/v/ac3001019)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|食尚玩家|2016夏日热斗 谁是扑克王1|莎莎,颜永烈,恺乐,黄镫辉,曾子余,阿松,浩角翔起(浩子,阿翔)|[点击播放](http://www.bilibili.com/video/av5667193/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
