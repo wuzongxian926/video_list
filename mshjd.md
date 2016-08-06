@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/8/05|海鲜蒸蛋 & 乡村蔬菜汤|微微蔡|[点击播放](http://www.bilibili.com/video/av5668845/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/04|糖醋花飞鱼 & 川七枸杞虾|温国智|[点击播放](http://www.bilibili.com/video/av5661416/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|药膳冷盘 & 鸡汁芹菜冬粉汤|微微蔡|[点击播放](http://www.acfun.tv/v/ac2944009)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|鱿鱼烤麸肉 & 冬粉拌豆干蛋酥|温国智|[点击播放](http://www.acfun.tv/v/ac2942200)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|蒜香肉丝 & 木耳脆管|温国智,老王|[点击播放](http://www.acfun.tv/v/ac2938553)|[网盘下载](http://xz.twzy.tw)

@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/8/04|连你都不知道 名师爱用正港好物都在这！|Kevin,柳燕,翊萱,夏宇童,潘映竹,张家慧,筱蕾|[点击播放](http://www.bilibili.com/video/av5670060/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/03|若是不打扮 就会输在起跑点！|林叶亭,PINK,赖薇如,Lydia,薇琪,亚美将,小Call,ANITA|[点击播放](http://www.bilibili.com/video/av5668224/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|2016下半年健康运|唐立淇,小祯,林立雯,王思佳,刘书宏,Christine,王瞳|[点击播放](http://www.acfun.tv/v/ac2945988)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|还没下手？2016美妆大赏最强入围篇！|Vincent,柳燕,林立雯,张家慧,薇琪,陈薇,佩洁,Ruby|[点击播放](http://www.acfun.tv/v/ac2943863)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|不论你是大胸小胸 只要这样穿就能抬头挺胸|Kevin,亦帆,洪棠,飞飞,Christine,俐妍|[点击播放](http://www.acfun.tv/v/ac2942397)|[网盘下载](http://xz.twzy.tw)

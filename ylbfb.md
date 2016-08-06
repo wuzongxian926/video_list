@@ -5,6 +5,10 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/03|百分百LIVE|恺乐,威廉,霍正奇,莫棠予|[点击播放](http://www.bilibili.com/video/av5665289/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|百分百LIVE|恺乐,威廉,天气女孩|[点击播放](http://www.bilibili.com/video/av5665276/)|[网盘下载](http://xz.twzy.tw)
+|2016/7/30|百分百游戏王|恺乐,威廉,洪晨颖,詹子晴,Eason,绿茶,李颖,石知田|[点击播放](http://www.bilibili.com/video/av5664911/)|[网盘下载](http://xz.twzy.tw)
+|2016/7/29|粉Meeting|恺乐,Wish,Masha,吴思贤|[点击播放](http://www.bilibili.com/video/av5664050/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|罗志祥庆生会|恺乐,威廉,罗志祥,李懿,茵茵,夏语心,拐拐,熊熊,潘映竹|[点击播放](http://www.acfun.tv/v/ac2943810)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|粉Meeting|恺乐,威廉,蔡昌宪,张立昂|[点击播放](http://www.acfun.tv/v/ac2942598)|[网盘下载](http://xz.twzy.tw)
 |2016/7/26|粉Meeting|恺乐,Wish,Masha,林宥嘉|[点击播放](http://www.acfun.tv/v/ac2938528)|[网盘下载](http://xz.twzy.tw)
