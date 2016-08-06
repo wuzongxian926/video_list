@@ -11,7 +11,7 @@
 |20160805|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160805|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160805|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160805|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160805|美凤有约|日本冈山 桃太郎采果赏景之旅|陈美凤|[点击播放](http://www.bilibili.com/video/av5683472/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160805|美食好简单|海鲜蒸蛋 & 乡村蔬菜汤|微微蔡|[点击播放](http://www.bilibili.com/video/av5668845/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160805|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160804|综艺大热门|不当艺人！你有办法转行吗？|王宣,梁正群,颜正国,曾菀婷,赵正平,大恺,谢忻,曾智希,惟毅,黄沐妍,余果冻,陈妈咪,邱薇而|[点击播放](http://www.acfun.tv/v/ac3000479)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
