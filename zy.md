@@ -66,7 +66,7 @@
 |20160802|请你跟<br>我这样过|发育太慢太早？！爸妈都烦恼？！|韦汝,罗美玲,林奇葳,专家:黄瑽宁,洪素卿,刘怡里|[点击播放](http://www.bilibili.com/video/av5671394)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160802|流行新势力|走啰！顶级渡假村大特搜|王滢,GiGi,温士凯|[点击播放](http://www.bilibili.com/video/av5658601/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160801|综艺大热门|年紀越大脾氣越差？老藝人不好相處排行榜！【上】|来宾|[点击播放](http://www.acfun.tv/v/ac2953531)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160801|综艺大热门|年紀越大脾氣越差？老藝人不好相處排行榜！【上】|来宾|[点击播放](http://www.acfun.tv/v/ac3000577)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160801|小明星大跟班|諧星撞臉巨星？ 網友點名藝能界明星臉！|来宾|[点击播放](http://www.tudou.com/programs/view/sSR7WlWgMI8/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160801|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160801|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
