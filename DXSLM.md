@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/05|挥别乖乖女形象！今晚我要晋升百大美女！|陈凯文,椆椆|[点击播放](http://www.bilibili.com/video/av5686298/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|畢業後到底要幹麻？！憲神跟Sandy來為你解惑！|来宾|[点击播放](http://www.bilibili.com/video/av5671373/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|大學生靈異實驗室|来宾|[点击播放](http://www.bilibili.com/video/av5671405/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|2016必败团购美食！！今晚你想吃哪一道呢？|Erica,Iris,伊登,小花,里维,张瑀庭|[点击播放](http://www.acfun.tv/v/ac2945940)|[网盘下载](http://xz.twzy.tw)

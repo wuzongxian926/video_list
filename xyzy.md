@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/8/05|爆红网路男神大PK|谢忻,海芬,田舞阳,李汉城,林圣尧,刘鸿敏,刘泓杰,凯晧|[点击播放](http://www.bilibili.com/video/av5681946/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/04|在國外Long Stay的那段日子…|来宾|[点击播放](http://www.bilibili.com/video/av5686024/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|亲爱的网友们 我想跟你说…|杨奇煜,林明祯,祖雄,雨婷,林建予|[点击播放](http://www.bilibili.com/video/av5660713/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|想不到！原来他们收藏这个？|柯有伦,林予晞,安哲,方志友,许孟哲,大飞|[点击播放](http://www.acfun.tv/v/ac2946157)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|組團是容易的事嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2942937)|[网盘下载](http://xz.twzy.tw)

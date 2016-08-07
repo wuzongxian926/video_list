@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/06|今夏制霸海灘時尚穿搭|来宾|[点击播放](http://www.bilibili.com/video/av5686784/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/31|逆齡美人保養術|来宾|[点击播放](http://www.acfun.tv/v/ac2948847)|[网盘下载](http://xz.twzy.tw)
 |2016/7/30|告别久坐肉肉女|庄碧玉,LULU,小甜甜,玉兔,MEIMEI|[点击播放](http://www.acfun.tv/v/ac2946198)|[网盘下载](http://xz.twzy.tw)
 |2016/7/23|環保時尚 愛美也要愛地球|来宾|[点击播放](http://www.acfun.tv/v/ac2928686)|[网盘下载](http://xz.twzy.tw)
