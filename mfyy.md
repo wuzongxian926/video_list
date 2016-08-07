@@ -7,6 +7,9 @@
 ----|----|----|----|----
 |2016/8/05|日本冈山 桃太郎采果赏景之旅|陈美凤|[点击播放](http://www.bilibili.com/video/av5683472/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|更年期报到 失眠好困扰|刘福助,向娃,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av5658812/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/8/03|美鳳上菜 深水炸彈烏龍麵|朱蓓苓、葉家妤|[点击播放](http://www.bilibili.com/video/av5696329/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|找出吃電怪獸 省電節能省荷包|Gigi、李洛洋、李建輝|[点击播放](http://www.bilibili.com/video/av5696186/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/8/01|年少要顧好 老來免煩惱|葉璦菱、余朱青、黃秀慧、亞美將|[点击播放](http://www.bilibili.com/video/av5695983/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|日本冈山之旅|陈美凤|[点击播放](http://www.acfun.tv/v/ac2944002)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|天然保健食品 吃醋有益健康|余政鸿,爱子妈妈(醋味达人)|[点击播放](http://www.acfun.tv/v/ac2941814)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|【大馬 蘭卡威】好好味呀～前進大馬！隱藏版地攤美食，道地馬來味，吃到讓你渾然忘我|来宾|[点击播放](http://www.acfun.tv/v/ac2938833)|[网盘下载](http://xz.twzy.tw)
