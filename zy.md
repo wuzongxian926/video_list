@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160806|综艺玩很大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160806|综艺玩很大|台灣 小琉球（上）|来宾|[点击播放](http://www.acfun.tv/v/ac3002155)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|超爱美小姐|今夏制霸海灘時尚穿搭|来宾|[点击播放](http://www.bilibili.com/video/av5686784/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
