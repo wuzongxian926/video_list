@@ -8,6 +8,8 @@
 |2016/8/05|挥别乖乖女形象！今晚我要晋升百大美女！|陈凯文,椆椆|[点击播放](http://www.bilibili.com/video/av5686298/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|畢業後到底要幹麻？！憲神跟Sandy來為你解惑！|来宾|[点击播放](http://www.bilibili.com/video/av5671373/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|大學生靈異實驗室|来宾|[点击播放](http://www.bilibili.com/video/av5671405/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|牙套女孩的血淚人生|来宾|[点击播放](http://www.bilibili.com/video/av5703564/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/01|今年夏天好难瘦！这三点让你激瘦十公斤！|李明川,莫莉|[点击播放](http://www.bilibili.com/video/av5703545/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|2016必败团购美食！！今晚你想吃哪一道呢？|Erica,Iris,伊登,小花,里维,张瑀庭|[点击播放](http://www.acfun.tv/v/ac2945940)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|大小胸讓你很困擾？|来宾|[点击播放](http://www.acfun.tv/v/ac2942861)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|最新诈骗实录！为什么你还执迷不悟！|曾咏熙,常金兰(反诈骗专家),陈亮廷(面相老师)|[点击播放](http://www.acfun.tv/v/ac2944250_2)|[网盘下载](http://xz.twzy.tw)

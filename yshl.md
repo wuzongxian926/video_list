@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/8/04|惊！看病也有分淡旺季？！|林若亚,哈孝远,曲艾玲|[点击播放](http://www.bilibili.com/video/av5670078/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|顾好内分泌 一辈子都受用？|李佳豫,王以路,谢丽金|[点击播放](http://www.bilibili.com/video/av5687054/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|得罪他们 让你再也不敢看病？|小钟,小甜甜,陈樱文|[点击播放](http://www.bilibili.com/video/av5706603/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/01|无效减肥法 你还再用吗？！|亚美将,小优,何嘉文|[点击播放](http://www.bilibili.com/video/av5692664/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|原来精神科这样看诊？！|王俐人,卢学叡,况明洁|[点击播放](http://www.acfun.tv/v/ac2943897)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|新時代症候群，你也有這些問題？！|来宾|[点击播放](http://www.acfun.tv/v/ac2942649)|[网盘下载](http://xz.twzy.tw)

@@ -8,6 +8,8 @@
 |2016/8/05|爆红网路男神大PK|谢忻,海芬,田舞阳,李汉城,林圣尧,刘鸿敏,刘泓杰,凯晧|[点击播放](http://www.bilibili.com/video/av5681946/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|在國外Long Stay的那段日子…|来宾|[点击播放](http://www.bilibili.com/video/av5686024/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|亲爱的网友们 我想跟你说…|杨奇煜,林明祯,祖雄,雨婷,林建予|[点击播放](http://www.bilibili.com/video/av5660713/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|童星们长大了！|左左右右,恺弟,爱子,安乙荞,黄安琪,谢博安|[点击播放](http://www.bilibili.com/video/av5703645/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/01|恶房东退散！怎么样才能租好房？|阿纬,洪晨颖,石知田,杨子仪,Mei,曾少宗|[点击播放](http://www.bilibili.com/video/av5703661/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|想不到！原来他们收藏这个？|柯有伦,林予晞,安哲,方志友,许孟哲,大飞|[点击播放](http://www.acfun.tv/v/ac2946157)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|組團是容易的事嗎？|来宾|[点击播放](http://www.acfun.tv/v/ac2942937)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|当个孕妇真的很辛苦！|郭昱晴,禹安,黄小柔,王以路,陈保仁,邱锦伶|[点击播放](http://www.acfun.tv/v/ac2942106)|[网盘下载](http://xz.twzy.tw)
