@@ -7,7 +7,7 @@
 ----|----|----|----|----
 |2015年|综艺玩很大高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/whd2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺玩很大高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/whd2014.md)|[网盘](http://xz.twzy.tw)
-|2016/8/06|台灣 小琉球（上）|吴宗宪,Kid,王仁甫,小净,杨晨熙,博焱,陈梦晨,罗莉塔,无尊|[点击播放](http://www.acfun.tv/v/ac3002155)|[网盘](http://xz.twzy.tw)
+|2016/8/06|台灣 小琉球（上）|吴宗宪,Kid,王仁甫,小净,杨晨熙,博焱,陈梦晨,罗莉塔,无尊|[点击播放](http://www.acfun.tv/v/ac3004426)|[网盘](http://xz.twzy.tw)
 |2016/7/30|重庆酉阳张家界（下）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac3002887)|[网盘](http://xz.twzy.tw)
 |2016/7/23|重庆酉阳张家界（上）|吴宗宪,Kid,李易,Una,LuLu,张立东,郭源元,书那娜,黄豪平|[点击播放](http://www.acfun.tv/v/ac3003733)|[网盘](http://xz.twzy.tw)
 |2016/7/16|日本犬山（下）|吴宗宪,Kid,张勋杰,柯家豪,王心恬,花花,林千又,邱慧雯,阿虎|[点击播放](http://www.acfun.tv/v/ac3003909)|[网盘](http://xz.twzy.tw)
