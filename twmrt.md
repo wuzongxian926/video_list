@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/7/31|搖滾教母_金智娟|金智娟|[点击播放](http://www.bilibili.com/video/av5708347/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/24|資深歌手_黃品源|黃品源|[点击播放](http://www.acfun.tv/v/ac2953390)|[网盘下载](http://xz.twzy.tw)
 |2016/7/17|台式搖滾_董事長樂團|董事長樂團|[点击播放](http://www.acfun.tv/v/ac2953333)|[网盘下载](http://xz.twzy.tw)
 |2016/7/10|SOGO董事長_黃晴雯|黃晴雯|[点击播放](http://www.acfun.tv/v/ac2903116)|[网盘下载](http://xz.twzy.tw)

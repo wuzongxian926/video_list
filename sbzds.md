@@ -8,6 +8,7 @@
 |2016/8/05|婚前阿姨笑脸迎你 婚后婆婆现出原形？！|余皓然,吕文婉,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av5687564/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|上班族也要会演戏 这些状况就能轻松过关？|余皓然,沈玉琳,杨皓如,胡孝诚|[点击播放](http://www.bilibili.com/video/av5687555/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|艺人美丽的幕后高手 私房梳化密招大公开？！|沈玉琳,韦汝,刘雨柔,吕文婉|[点击播放](http://www.bilibili.com/video/av5664578/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|从男人付钱的小动作 可以看出未来的幸福？！|余皓然,沈玉琳,韦汝,林萃芬|[点击播放](http://www.bilibili.com/video/av5707683/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/01|有些同事个性很负面 带来悲剧该怎么自保？|沈玉琳,Sam,林萃芬,胡孝诚|[点击播放](http://www.bilibili.com/video/av5692420/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|男人也爱碎碎念 双重标准很烦怎么办？！|沈玉琳,刘雨柔,GiGi,林萃芬|[点击播放](http://www.acfun.tv/v/ac2946047)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|真的会因为他 燃气你的运动魂？！|余皓然,杨皓如,韦汝,小Call|[点击播放](http://www.acfun.tv/v/ac2943912)|[网盘下载](http://xz.twzy.tw)
