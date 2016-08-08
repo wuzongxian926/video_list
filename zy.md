@@ -11,7 +11,7 @@
 |20160807|没玩没了|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|GOGO捷运|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|GoGoTaiwan|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160806|综艺玩很大|台灣 小琉球（上）|吴宗宪,Kid,王仁甫,小净,杨晨熙,博焱,陈梦晨,罗莉塔,无尊|[点击播放](http://www.acfun.tv/v/ac3004426)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160806|综艺玩很大|台灣 小琉球(上)|吴宗宪,Kid,王仁甫,小净,杨晨熙,博焱,陈梦晨,罗莉塔,无尊|[点击播放](http://www.acfun.tv/v/ac3004426)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|超爱美小姐|今夏制霸海灘時尚穿搭|来宾|[点击播放](http://www.bilibili.com/video/av5686784/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
