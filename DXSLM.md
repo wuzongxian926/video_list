@@ -6,7 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/8/05|挥别乖乖女形象！今晚我要晋升百大美女！|陈凯文,椆椆|[点击播放](http://www.bilibili.com/video/av5686298/)|[网盘下载](http://xz.twzy.tw)
-|2016/8/04|畢業後到底要幹麻？！憲神跟Sandy來為你解惑！|来宾|[点击播放](http://www.bilibili.com/video/av5671373/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/04|畢業後到底要幹麻？憲神跟Sandy來為你解惑！|来宾|[点击播放](http://www.bilibili.com/video/av5671373/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|大學生靈異實驗室|来宾|[点击播放](http://www.bilibili.com/video/av5671405/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/02|牙套女孩的血淚人生|来宾|[点击播放](http://www.bilibili.com/video/av5703564/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/01|今年夏天好难瘦！这三点让你激瘦十公斤！|李明川,莫莉|[点击播放](http://www.bilibili.com/video/av5703545/)|[网盘下载](http://xz.twzy.tw)
