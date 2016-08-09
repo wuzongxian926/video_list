@@ -5,7 +5,11 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
-|2016/8/01|諧星撞臉巨星？ 網友點名藝能界明星臉！|来宾|[点击播放](http://www.acfun.tv/v/ac2953691)|[网盘下载](http://xz.twzy.tw)
+|2016/8/08|全民笑話英檢！！東西方笑點差好多！！|来宾|[点击播放](http://www.tudou.com/programs/view/HDOmJeXbdgE/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/04|赌上师傅的名誉！！艺能徒弟争霸战！！|赵正平,辛龙,大恺,大根,阿虎,家成,香蕉,玛莉亚|[点击播放](http://www.tudou.com/programs/view/LtmOxJQA_l8/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/03|你真的了解妈妈吗？！母亲真心话大告白！！|Paul,Paul妈,五熊,五熊妈,大飞,大飞妈,夏语心,陈丽云,嘻小瓜,小瓜妈|[点击播放](http://www.tudou.com/programs/view/-whtfmJEXxY/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/02|我的愿望是世界和平！！选美皇后生死斗！！|小钟,刘伊心,BOi(信维,翔永),蔡昀羲,丁文茵,陈怡文,力英桂,高曼容|[点击播放](http://www.tudou.com/programs/view/MI6yWoLc66w/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/01|諧星撞臉巨星？ 網友點名藝能界明星臉！|来宾|[点击播放](http://www.tudou.com/programs/view/sSR7WlWgMI8/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/28|這麼Man的工作　竟然有美女？！|马国毕,班杰,Apple,千又|[点击播放](http://www.acfun.tv/v/ac2941678)|[网盘下载](http://xz.twzy.tw)
 |2016/7/27|最不想被認出來的那一刻　明星就診尷尬事！|来宾|[点击播放](http://www.acfun.tv/v/ac2938770)|[网盘下载](http://xz.twzy.tw)
 |2016/7/26|未成年女孩的战争 高中校花大比拼！！|周晓涵,夏语心,梁以辰,陈怡佳,蔡谨卉,林苡瑄,许斐棋,胡韡心|[点击播放](http://www.acfun.tv/v/ac2935802)|[网盘下载](http://xz.twzy.tw)

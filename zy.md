@@ -4,6 +4,23 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160808|综艺大热门|歐巴桑評評理！這件事情妳怎麼看？|来宾|[点击播放](http://www.acfun.tv/v/ac3007101)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|小明星大跟班|全民笑話英檢！！東西方笑點差好多！！|来宾|[点击播放](http://www.tudou.com/programs/view/HDOmJeXbdgE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|型男大主厨|台日PK大挑戰！今日料理挑戰賽，現在開始～ |来宾|[点击播放](http://www.acfun.tv/v/ac3007389)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|美凤有约|向肥胖說掰掰 還我健康好體態|王思佳、布蘭妮、余朱青|[点击播放](http://www.bilibili.com/video/av5720044/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|美食好简单|椰香梅花肉|来宾|[点击播放](http://www.bilibili.com/video/av5720230/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|国光帮帮忙|台灣最LOCAL的味道！問她們最知道！！|来宾|[点击播放](http://www.acfun.tv/v/ac3007135)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|穿越康熙|身材決定穿衣美感？！|来宾|[点击播放](http://www.bilibili.com/video/av5723100/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|超爱美小姐|婚礼好好玩|Apple,Ann,Nikki|[点击播放](http://www.bilibili.com/video/av5705934/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

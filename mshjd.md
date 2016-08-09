@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/08|椰香梅花肉|来宾|[点击播放](http://www.bilibili.com/video/av5720230/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|海鲜蒸蛋 & 乡村蔬菜汤|微微蔡|[点击播放](http://www.bilibili.com/video/av5668845/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|糖醋花飞鱼 & 川七枸杞虾|温国智|[点击播放](http://www.bilibili.com/video/av5661416/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/02|腊肠香菇鸡 & 芙蓉旭蟹|温国智|[点击播放](http://www.bilibili.com/video/av5708213/)|[网盘下载](http://xz.twzy.tw)

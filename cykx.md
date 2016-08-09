@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/08|身材決定穿衣美感？！|来宾|[点击播放](http://www.bilibili.com/video/av5723100/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|他們再出片有市場嗎？|来宾|[点击播放](http://www.bilibili.com/video/av5685739/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|他們靠這賺到人生第一桶金|来宾|[点击播放](http://www.bilibili.com/video/av5660414/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|這樣穿會不會太犯規？|来宾|[点击播放](http://www.bilibili.com/video/av5660493/)|[网盘下载](http://xz.twzy.tw)
