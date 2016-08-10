@@ -13,7 +13,7 @@
 |20160809|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160809|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|美凤有约|美鳳上菜 醬燒金針菇牛肉捲、冬瓜金針菇湯|李冠儀、余朱青|[点击播放](http://www.bilibili.com/video/av5742067/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|美食好简单|醬香肉丸子|来宾|[点击播放](http://www.bilibili.com/video/av5739006/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|国光帮帮忙|蒙面好身材！妳不出寫真集太浪費了！|来宾|[点击播放](http://www.acfun.tv/v/ac3010075)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|爱玩客|【澎湖】愛心廚房來啦！詹姆士哥哥送飯到離島，守住純樸的外島風情~ |来宾|[点击播放](http://www.acfun.tv/v/ac3010209)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
