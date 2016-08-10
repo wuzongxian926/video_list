@@ -90,7 +90,7 @@
 |20160803|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|娱乐百分百|百分百LIVE|恺乐,威廉,霍正奇,莫棠予|[点击播放](http://www.bilibili.com/video/av5665289/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|美凤有约|美鳳上菜 深水炸彈烏龍麵|朱蓓苓、葉家妤|[点击播放](http://www.bilibili.com/video/av5696329/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160803|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160803|美食好简单|酱辣鸡翅 & 蚝菇丝瓜|温国智|[点击播放](http://www.bilibili.com/video/av5744281/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|国光帮帮忙|男人整成這樣是為什麼呢？|来宾|[点击播放](http://www.acfun.tv/v/ac3001019)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|爱玩客|【大阪 日本】太超過，環球影城|来宾|[点击播放](http://www.acfun.tv/v/ac3004017)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|医师好辣|顾好内分泌 一辈子都受用？|李佳豫,王以路,谢丽金|[点击播放](http://www.bilibili.com/video/av5687054/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

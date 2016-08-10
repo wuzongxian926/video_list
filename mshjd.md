@@ -9,6 +9,7 @@
 |2016/8/08|椰香梅花肉|来宾|[点击播放](http://www.bilibili.com/video/av5720230/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|海鲜蒸蛋 & 乡村蔬菜汤|微微蔡|[点击播放](http://www.bilibili.com/video/av5668845/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|糖醋花飞鱼 & 川七枸杞虾|温国智|[点击播放](http://www.bilibili.com/video/av5661416/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/03|酱辣鸡翅 & 蚝菇丝瓜|温国智|[点击播放](http://www.bilibili.com/video/av5744281/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/02|腊肠香菇鸡 & 芙蓉旭蟹|温国智|[点击播放](http://www.bilibili.com/video/av5708213/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/01|七味黄金地瓜 & 豇豆麻香鱼片|温国智|[点击播放](http://www.bilibili.com/video/av5693056/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/29|药膳冷盘 & 鸡汁芹菜冬粉汤|微微蔡|[点击播放](http://www.acfun.tv/v/ac2944009)|[网盘下载](http://xz.twzy.tw)
