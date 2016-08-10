@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/8/09|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)
 |2016/8/08|歐巴桑評評理！這件事情妳怎麼看？|来宾|[点击播放](http://www.acfun.tv/v/ac3007101)|[网盘](http://xz.twzy.tw)
 |2016/8/04|不当艺人！你有办法转行吗？|王宣,梁正群,颜正国,曾菀婷,赵正平,大恺,谢忻,曾智希,惟毅,黄沐妍,余果冻,陈妈咪,邱薇而|[点击播放](http://www.acfun.tv/v/ac3000479)|[网盘](http://xz.twzy.tw)
 |2016/8/03|无厘头实验室！这件事情真的会发生吗？（下）|熊熊,张立东,廖慧珍,成语荞,大根,曾智希,唐宏安,千千,Penny(料理达人)|[点击播放](http://www.acfun.tv/v/ac3000472)|[网盘](http://xz.twzy.tw)

@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160809|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160809|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|综艺大热门|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|小明星大跟班|我再也不要跟你出去玩！ 親子旅遊控訴大會！|来宾|[点击播放](http://www.tudou.com/programs/view/nrS9vLJ84zE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|型男大主厨|SpeXial 拆夥大對決 ! |来宾|[点击播放](http://www.acfun.tv/v/ac3009774)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -15,8 +15,8 @@
 |20160809|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|美食好简单|醬香肉丸子|来宾|[点击播放](http://www.bilibili.com/video/av5739006/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160809|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160809|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|国光帮帮忙|蒙面好身材！妳不出寫真集太浪費了！|来宾|[点击播放](http://www.acfun.tv/v/ac3010075)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|爱玩客|【澎湖】愛心廚房來啦！詹姆士哥哥送飯到離島，守住純樸的外島風情~ |来宾|[点击播放](http://www.acfun.tv/v/ac3010209)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
