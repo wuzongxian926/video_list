@@ -30,7 +30,7 @@
 |20160808|女人我最大|摆脱一成不变 换个发型判若两人！|吴依霖,杨子仪,王毓翔,薇琪,赖薇如,詹子晴,陈薇,小Call,小筠|[点击播放](http://www.bilibili.com/video/av5728460/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160808|上班这党事|这几种同事别深交 否则受伤的就是你？！|余皓然,杨皓如,卢燕俐,林萃芬|[点击播放](http://www.bilibili.com/video/av5728582/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160808|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160808|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160808|娱乐百分百|粉Meeting|恺乐,毛弟,Spexial|[点击播放](http://www.acfun.tv/v/ac3009670)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160808|美凤有约|向肥胖說掰掰 還我健康好體態|王思佳、布蘭妮、余朱青|[点击播放](http://www.bilibili.com/video/av5720044/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160808|美食好简单|椰香梅花肉|来宾|[点击播放](http://www.bilibili.com/video/av5720230/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160808|国光帮帮忙|台灣最LOCAL的味道！問她們最知道！！|来宾|[点击播放](http://www.acfun.tv/v/ac3007135)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
