@@ -6,11 +6,11 @@
 ----|----|----|----|----|----|----
 |20160809|综艺大热门|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|小明星大跟班|我再也不要跟你出去玩！ 親子旅遊控訴大會！|来宾|[点击播放](http://www.tudou.com/programs/view/nrS9vLJ84zE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160809|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|小燕之夜|旅行这件事 到底自由行好？还是跟团好？|Julie,小钟,杨子仪,徐小可,依依|[点击播放](http://www.bilibili.com/video/av5753134/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|大学生了没|按讚表演挑戰賽！|来宾|[点击播放](http://www.bilibili.com/video/av5750561/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|型男大主厨|SpeXial 拆夥大對決 ! |来宾|[点击播放](http://www.acfun.tv/v/ac3009774)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|女人我最大|你和女神只差了这一步 这样做就能变正|Kevin,柳燕,张家慧,汪诗敏,夏宇童,林琪璇,于嘉莹,Christine|[点击播放](http://www.bilibili.com/video/av5752637/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160809|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160809|上班这党事|办公室超夯新美食 工作更加有活力？|余皓然,Sam,何嘉文,Erica|[点击播放](http://www.bilibili.com/video/av5753053/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|美凤有约|美鳳上菜 醬燒金針菇牛肉捲、冬瓜金針菇湯|李冠儀、余朱青|[点击播放](http://www.bilibili.com/video/av5742067/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

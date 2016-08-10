@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/09|旅行这件事 到底自由行好？还是跟团好？|Julie,小钟,杨子仪,徐小可,依依|[点击播放](http://www.bilibili.com/video/av5753134/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|我的帅气老爸|杨铭威,翁馨仪,杨千霈|[点击播放](http://www.bilibili.com/video/av5733940/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|爆红网路男神大PK|谢忻,海芬,田舞阳,李汉城,林圣尧,刘鸿敏,刘泓杰,凯晧|[点击播放](http://www.bilibili.com/video/av5681946/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|在國外Long Stay的那段日子…|来宾|[点击播放](http://www.bilibili.com/video/av5686024/)|[网盘下载](http://xz.twzy.tw)
