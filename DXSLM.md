@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/09|按讚表演挑戰賽！|来宾|[点击播放](http://www.bilibili.com/video/av5750561/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|前世情人来讨债！！爸爸慌张挫哩等！？|任爸,罗怡君(亲子作家)|[点击播放](http://www.bilibili.com/video/av5727284/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|挥别乖乖女形象！今晚我要晋升百大美女！|陈凯文,椆椆|[点击播放](http://www.bilibili.com/video/av5686298/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|畢業後到底要幹麻？憲神跟Sandy來為你解惑！|来宾|[点击播放](http://www.bilibili.com/video/av5671373/)|[网盘下载](http://xz.twzy.tw)
