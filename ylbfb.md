@@ -7,6 +7,9 @@
 ----|----|----|----|----
 |2016/8/09|娛樂百分百 LIVE|来宾|[点击播放](http://www.acfun.tv/v/ac3012071)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|粉Meeting|恺乐,毛弟,Spexial|[点击播放](http://www.acfun.tv/v/ac3009670)|[网盘下载](http://xz.twzy.tw)
+|2016/8/06|叫我美脑王|猪+威廉,林进,小A辣,郭郁承,Lamigirls(琳妲,Eli,曲曲)|[点击播放](http://www.acfun.tv/v/ac3013248)|[网盘下载](http://xz.twzy.tw)
+|2016/8/05|粉Meeting|乐+毛弟,Hero祖雄,林明祯,林建予,雨婷|[点击播放](http://www.acfun.tv/v/ac3012380)|[网盘下载](http://xz.twzy.tw)
+|2016/8/04|粉Meeting|乐+威廉,左左右右|[点击播放](http://www.acfun.tv/v/ac3012378)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|百分百LIVE|恺乐,威廉,霍正奇,莫棠予|[点击播放](http://www.bilibili.com/video/av5665289/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/02|百分百LIVE|恺乐,威廉,天气女孩|[点击播放](http://www.bilibili.com/video/av5665276/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/30|百分百游戏王|恺乐,威廉,洪晨颖,詹子晴,Eason,绿茶,李颖,石知田|[点击播放](http://www.bilibili.com/video/av5664911/)|[网盘下载](http://xz.twzy.tw)
