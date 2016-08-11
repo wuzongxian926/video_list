@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/10|大明星指定菜 黃鴻升、莫允雯來做菜|来宾|[点击播放](http://www.acfun.tv/v/ac3012694)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|SpeXial 拆夥大對決 !|来宾|[点击播放](http://www.acfun.tv/v/ac3009774)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|台日PK大挑戰！今日料理挑戰賽，現在開始～|来宾|[点击播放](http://www.acfun.tv/v/ac3007389)|[网盘下载](http://xz.twzy.tw)
 |2016/8/04|白鷺鷥的願望 完全來攪和來賓之料理大賽|来宾|[点击播放](http://www.acfun.tv/v/ac3000505)|[网盘下载](http://xz.twzy.tw)

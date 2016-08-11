@@ -4,6 +4,23 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160810|综艺大热门|新生代諧星！自創角色爭霸戰！！|来宾|[点击播放](http://www.acfun.tv/v/ac3012718)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|型男大主厨|大明星指定菜 黃鴻升、莫允雯來做菜|来宾|[点击播放](http://www.acfun.tv/v/ac3012694)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|国光帮帮忙|這些工作！連男人也不敢做！！|来宾|[点击播放](http://www.acfun.tv/v/ac3012767)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|综艺大热门|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|小明星大跟班|我再也不要跟你出去玩！ 親子旅遊控訴大會！|来宾|[点击播放](http://www.tudou.com/programs/view/nrS9vLJ84zE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|小燕之夜|旅行这件事 到底自由行好？还是跟团好？|Julie,小钟,杨子仪,徐小可,依依|[点击播放](http://www.bilibili.com/video/av5753134/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
