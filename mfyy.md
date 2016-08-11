@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/10|盛夏消暑好料理 泰式牛肉拌木瓜|詹子晴,蔡万利|[点击播放](http://www.bilibili.com/video/av5756610/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|美鳳上菜 醬燒金針菇牛肉捲、冬瓜金針菇湯|李冠儀、余朱青|[点击播放](http://www.bilibili.com/video/av5742067/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|向肥胖說掰掰 還我健康好體態|王思佳、布蘭妮、余朱青|[点击播放](http://www.bilibili.com/video/av5720044/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|日本冈山 桃太郎采果赏景之旅|陈美凤|[点击播放](http://www.bilibili.com/video/av5683472/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

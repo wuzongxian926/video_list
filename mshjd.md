@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/10|香菇猪脚 & 啤酒酱油鸡|温国智|[点击播放](http://www.bilibili.com/video/av5757491/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|醬香肉丸子|来宾|[点击播放](http://www.bilibili.com/video/av5739006/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|椰香梅花肉|来宾|[点击播放](http://www.bilibili.com/video/av5720230/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/05|海鲜蒸蛋 & 乡村蔬菜汤|微微蔡|[点击播放](http://www.bilibili.com/video/av5668845/)|[网盘下载](http://xz.twzy.tw)
