@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160810|综艺大热门|新生代諧星！自創角色爭霸戰！！|来宾|[点击播放](http://www.acfun.tv/v/ac3012718)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160810|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|小明星大跟班|女谐星恋爱悲歌？宪哥帮你挑男友！|张兆志,陈德烈,詹子晴,廖慧珍,黄乔歆,Amanda|[点击播放](http://www.tudou.com/programs/view/Ls78A8utweM/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|型男大主厨|大明星指定菜 黃鴻升、莫允雯來做菜|来宾|[点击播放](http://www.acfun.tv/v/ac3012694)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -20,7 +20,7 @@
 |20160810|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160810|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|穿越康熙|前情人禮物交換大會|来宾|[点击播放](http://www.bilibili.com/video/av5758778/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|综艺大热门|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|小明星大跟班|我再也不要跟你出去玩！ 親子旅遊控訴大會！|来宾|[点击播放](http://www.tudou.com/programs/view/nrS9vLJ84zE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|小燕之夜|旅行这件事 到底自由行好？还是跟团好？|Julie,小钟,杨子仪,徐小可,依依|[点击播放](http://www.bilibili.com/video/av5753134/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
