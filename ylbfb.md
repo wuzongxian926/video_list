@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/09|娛樂百分百 LIVE|来宾|[点击播放](http://www.acfun.tv/v/ac3012071)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|粉Meeting|恺乐,毛弟,Spexial|[点击播放](http://www.acfun.tv/v/ac3009670)|[网盘下载](http://xz.twzy.tw)
 |2016/8/03|百分百LIVE|恺乐,威廉,霍正奇,莫棠予|[点击播放](http://www.bilibili.com/video/av5665289/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/02|百分百LIVE|恺乐,威廉,天气女孩|[点击播放](http://www.bilibili.com/video/av5665276/)|[网盘下载](http://xz.twzy.tw)
