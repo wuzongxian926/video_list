@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/11|原谅or拆伙？！搭档告解大会！！|孙协志,王仁甫,陈明仁,吴廷宏,Mia,Yumi,阿虎,卡古,杨晨熙,陈嘉行|[点击播放](http://www.tudou.com/programs/view/eGCL8u4lNIg/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|女谐星恋爱悲歌？宪哥帮你挑男友！|张兆志,陈德烈,詹子晴,廖慧珍,黄乔歆,Amanda|[点击播放](http://www.tudou.com/programs/view/Ls78A8utweM/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|我再也不要跟你出去玩！ 親子旅遊控訴大會！|来宾|[点击播放](http://www.tudou.com/programs/view/nrS9vLJ84zE/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|全民笑話英檢！！東西方笑點差好多！！|来宾|[点击播放](http://www.tudou.com/programs/view/HDOmJeXbdgE/)|[网盘下载](http://xz.twzy.tw)

@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/8/11|ㄌㄠˋ人脉大赛！我的好友真的很大牌！|大飞,刘书宏,沈玉琳,博焱,杨子仪,曹格,蓝心湄,黑人,萧敬腾,澎恰恰,曹西平|[点击播放](http://www.acfun.tv/v/ac3015750)|[网盘](http://xz.twzy.tw)
 |2016/8/10|新生代諧星！自創角色爭霸戰！！|来宾|[点击播放](http://www.acfun.tv/v/ac3012718)|[网盘](http://xz.twzy.tw)
 |2016/8/09|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)
 |2016/8/08|歐巴桑評評理！這件事情妳怎麼看？|来宾|[点击播放](http://www.acfun.tv/v/ac3007101)|[网盘](http://xz.twzy.tw)
