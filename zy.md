@@ -29,7 +29,7 @@
 |20160810|女人我最大|海边超美不掉漆的 终极秘技！|吴依霖,Kevin,刘书宏,柯杰夫,王思佳,侬侬,陈薇,佩洁|[点击播放](http://www.bilibili.com/video/av5770056/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|上班这党事|上班族的这些小习惯 体重就会直直往上飙？！|Sam,洪素卿,小彤,卢威廷|[点击播放](http://www.bilibili.com/video/av5770599/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160810|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|娱乐百分百|百分百LIVE SpeXial迷你运动会|明杰,伟晋,风田,萧煌奇,毕书尽|[点击播放](http://www.acfun.tv/v/ac3015306)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|美凤有约|盛夏消暑好料理 泰式牛肉拌木瓜|詹子晴,蔡万利|[点击播放](http://www.bilibili.com/video/av5756610/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|美食好简单|香菇猪脚 & 啤酒酱油鸡|温国智|[点击播放](http://www.bilibili.com/video/av5757491/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|国光帮帮忙|這些工作！連男人也不敢做！！|来宾|[点击播放](http://www.acfun.tv/v/ac3012767)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

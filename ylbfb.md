@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/10|百分百LIVE SpeXial迷你运动会|明杰,伟晋,风田,萧煌奇,毕书尽|[点击播放](http://www.acfun.tv/v/ac3015306)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|娛樂百分百 LIVE|来宾|[点击播放](http://www.acfun.tv/v/ac3012071)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|粉Meeting|恺乐,毛弟,Spexial|[点击播放](http://www.acfun.tv/v/ac3009670)|[网盘下载](http://xz.twzy.tw)
 |2016/8/06|叫我美脑王|猪+威廉,林进,小A辣,郭郁承,Lamigirls(琳妲,Eli,曲曲)|[点击播放](http://www.acfun.tv/v/ac3013248)|[网盘下载](http://xz.twzy.tw)
