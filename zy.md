@@ -14,7 +14,7 @@
 |20160811|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|美凤有约|黑猫时尚厨房 酱瓜清蒸鱼|陈樱文,蔡季芳|[点击播放](http://www.bilibili.com/video/av5772149/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160811|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160811|美食好简单|翠玉梅花肉 & 开心果鸡片|温国智|[点击播放](http://www.bilibili.com/video/av5781470/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
