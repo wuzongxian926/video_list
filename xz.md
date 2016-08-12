@@ -25,13 +25,13 @@
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |8.11|综艺大热门|[http://pan.baidu.com/s/1o8MYVOI](http://pan.baidu.com/s/1o8MYVOI)<br>密码:mxwt|小明星大跟班|[http://pan.baidu.com/s/1dE6ggxz](http://pan.baidu.com/s/1dE6ggxz)<br>密码:iy5h
 |8.11|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|8.11|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|8.11|型男大主厨|[http://pan.baidu.com/s/1bJd2YM](http://pan.baidu.com/s/1bJd2YM)<br>密码:7xkt|女人我最大|[]()<br>密码:
 |8.11|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
-|8.11|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
+|8.11|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1qXRyzZe](http://pan.baidu.com/s/1qXRyzZe)<br>密码:vgzd
 |8.11|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
 |8.11|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
 |8.11|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
-|8.11|穿越康熙|[]()<br>密码:|
+|8.11|穿越康熙|[http://pan.baidu.com/s/1gfLlvk3](http://pan.baidu.com/s/1gfLlvk3)<br>密码:rgsd|
 |8.10|综艺大热门|[http://pan.baidu.com/s/1c25cx9Y](http://pan.baidu.com/s/1c25cx9Y)<br>密码:abep|小明星大跟班|[http://pan.baidu.com/s/1col4rc](http://pan.baidu.com/s/1col4rc)<br>密码:5vp8
 |8.10|小燕之夜|[http://pan.baidu.com/s/1c2yqPpQ](http://pan.baidu.com/s/1c2yqPpQ)<br>密码:70kf|大学生了没|[http://pan.baidu.com/s/1nvvqFl3](http://pan.baidu.com/s/1nvvqFl3)<br>密码:1fmf
 |8.10|型男大主厨|[http://pan.baidu.com/s/1i5M3i7N](http://pan.baidu.com/s/1i5M3i7N)<br>密码:gqur|女人我最大|[http://pan.baidu.com/s/1qYpeVko](http://pan.baidu.com/s/1qYpeVko)<br>密码:tw1a
