@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/12|芋香米粉汤 & 蜜芋头|微微蔡|[点击播放](http://www.bilibili.com/video/av5792057/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/11|翠玉梅花肉 & 开心果鸡片|温国智|[点击播放](http://www.bilibili.com/video/av5781470/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|香菇猪脚 & 啤酒酱油鸡|温国智|[点击播放](http://www.bilibili.com/video/av5757491/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|醬香肉丸子|来宾|[点击播放](http://www.bilibili.com/video/av5739006/)|[网盘下载](http://xz.twzy.tw)
