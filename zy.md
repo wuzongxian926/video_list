@@ -10,7 +10,7 @@
 |20160813|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160812|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160812|小燕之夜|为了牠 你能做的事？|王治平,张祖诚,阿纬,小煜,黄荻钧,路嘉欣,狸猫,志铭,刘雅芬,查理|[点击播放](http://www.bilibili.com/video/av5802663/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|大学生了没|男人不懂的女人穿搭！！|小四,小茉莉|[点击播放](http://www.bilibili.com/video/av5801495/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|女人我最大|别再盲目了！舍弃成见才能遇见好男人!|唐立淇,梁赫群,刘晓忆,詹子晴,佩洁,小Call,亦帆|[点击播放](http://www.bilibili.com/video/av5797661/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
