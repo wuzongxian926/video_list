@@ -65,11 +65,11 @@
 |8.8|爱玩客|[http://pan.baidu.com/s/1geVesyn](http://pan.baidu.com/s/1geVesyn)<br>密码:w8u3|医师好辣|[http://pan.baidu.com/s/1i5g59DN](http://pan.baidu.com/s/1i5g59DN)<br>密码:xo0s
 |8.8|食尚玩家|[http://pan.baidu.com/s/1pKUOfEV](http://pan.baidu.com/s/1pKUOfEV)<br>密码:5b27|请你跟我这样过|[http://pan.baidu.com/s/1o7P0z0Y](http://pan.baidu.com/s/1o7P0z0Y)<br>密码:qvdj
 |8.8|穿越康熙|[http://pan.baidu.com/s/1c130gJe](http://pan.baidu.com/s/1c130gJe)<br>密码:71v0|
-|8.7|名模出任务|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1qYTGwm4](http://pan.baidu.com/s/1qYTGwm4)<br>密码:7ydl
+|8.7|名模出任务|[http://pan.baidu.com/s/1qYcnK2C](http://pan.baidu.com/s/1qYcnK2C)<br>密码:zwav|超爱美小姐|[http://pan.baidu.com/s/1qYTGwm4](http://pan.baidu.com/s/1qYTGwm4)<br>密码:7ydl
 |8.7|综艺大集合|[http://pan.baidu.com/s/1pK9P1fP](http://pan.baidu.com/s/1pK9P1fP)<br>密码:jm7x|台湾名人堂|[]()<br>密码:
 |8.7|没玩没了|[http://pan.baidu.com/s/1eRZkr8Q](http://pan.baidu.com/s/1eRZkr8Q)<br>密码:6zey|GOGO捷运|[http://pan.baidu.com/s/1kUYuioR](http://pan.baidu.com/s/1kUYuioR)<br>密码:lst2
 |8.7|GoGoTaiwan|[http://pan.baidu.com/s/1mi73Ui8](http://pan.baidu.com/s/1mi73Ui8)<br>密码:wk27|后宫生还战|[http://pan.baidu.com/s/1hsqbpqO](http://pan.baidu.com/s/1hsqbpqO)<br>密码:3xcq
-|8.6|综艺玩很大|[http://pan.baidu.com/s/1dFJnqMl](http://pan.baidu.com/s/1dFJnqMl)<br>密码:0zcf|天才冲冲冲|[]()<br>密码:
+|8.6|综艺玩很大|[http://pan.baidu.com/s/1dFJnqMl](http://pan.baidu.com/s/1dFJnqMl)<br>密码:0zcf|天才冲冲冲|[http://pan.baidu.com/s/1qXYPWIw](http://pan.baidu.com/s/1qXYPWIw)<br>密码:4ibz
 |8.6|超级夜总会|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1c2cCbjM](http://pan.baidu.com/s/1c2cCbjM)<br>密码:yeda
 |8.6|舞力全开|[http://pan.baidu.com/s/1hsqbiio](http://pan.baidu.com/s/1hsqbiio)<br>密码:09ab|全民一起来|[]()<br>密码:
 |8.6|娱乐百分百|[http://pan.baidu.com/s/1kVS4Hsb](http://pan.baidu.com/s/1kVS4Hsb)<br>密码:rlbn
