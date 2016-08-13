@@ -4,6 +4,12 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160813|综艺玩很大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|超爱美小姐|時尚巨星日LULU 完整版|来宾|[点击播放](http://www.bilibili.com/video/av5801248/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|大学生了没|男人不懂的女人穿搭！！|小四,小茉莉|[点击播放](http://www.bilibili.com/video/av5801495/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -22,7 +28,7 @@
 |20160811|女人我最大|拍照打卡 这样最多人按赞！|柳燕,小凯,潘慧如,陈薇,汪诗敏,Christine,夏宇童,芳瑜|[点击播放](http://www.bilibili.com/video/av5790378/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|上班这党事|百货专柜人员来爆料 你不知道的小撒步？！|玉菲,Sam,刘雨柔,洪素卿,韦汝|[点击播放](http://www.bilibili.com/video/av5790455/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160811|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160811|娱乐百分百|百分百大对抗 兄弟大对决|恺乐,威廉,Top Secert|[点击播放](http://www.acfun.tv/v/ac3019124)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|美凤有约|黑猫时尚厨房 酱瓜清蒸鱼|陈樱文,蔡季芳|[点击播放](http://www.bilibili.com/video/av5772149/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|美食好简单|翠玉梅花肉 & 开心果鸡片|温国智|[点击播放](http://www.bilibili.com/video/av5781470/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160811|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -45,7 +51,7 @@
 |20160810|国光帮帮忙|這些工作！連男人也不敢做！！|来宾|[点击播放](http://www.acfun.tv/v/ac3012767)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|爱玩客|泰國 普吉島 泳池、美女、泰式酒吧，豪華升級再加碼！|来宾|[点击播放](http://www.acfun.tv/v/ac3012819)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|医师好辣|大发现！原来我们都错了|五熊,郭鑫,Julie|[点击播放](http://www.bilibili.com/video/av5770355/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160810|食尚玩家|2016夏日热斗 谁是扑克王3|莎莎,颜永烈,恺乐,黄镫辉,曾子余,阿松,浩角翔起(浩子,阿翔)|[点击播放](http://www.bilibili.com/video/av5772989/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160810|食尚玩家|2016夏日热斗 谁是扑克王3|莎莎,颜永烈,恺乐,黄镫辉,曾子余,阿松,浩角翔起(浩子,阿翔)|[点击播放](http://www.acfun.tv/v/ac3019138)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|请你跟<br>我这样过|想要五官立体加小脸 不藏私大公开？！|韦汝,夏和熙,小优,专家:李明川,陈谕正,许琼月|[点击播放](http://www.bilibili.com/video/av5793245/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160810|穿越康熙|前情人禮物交換大會|来宾|[点击播放](http://www.bilibili.com/video/av5758778/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160809|综艺大热门|ABC改成ㄅㄆㄇ！地表最強改歌大戰！！ |来宾|[点击播放](http://www.acfun.tv/v/ac3010043)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

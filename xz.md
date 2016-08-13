@@ -23,6 +23,9 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
+|8.13|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
+|8.13|娱乐百分百|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1i57AkOP](http://pan.baidu.com/s/1i57AkOP)<br>密码:n7dq
+|8.13|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
 |8.12|小燕之夜|[]()<br>密码:|穿越康熙|[http://pan.baidu.com/s/1o8B3JLK](http://pan.baidu.com/s/1o8B3JLK)<br>密码:gl49
 |8.12|大学生了没|[http://pan.baidu.com/s/1c1TiN1Q](http://pan.baidu.com/s/1c1TiN1Q)<br>密码:lswj|型男大主厨|[]()<br>密码:
 |8.12|女人我最大|[http://pan.baidu.com/s/1dFbUqQl](http://pan.baidu.com/s/1dFbUqQl)<br>密码:42wp|上班这党事|[http://pan.baidu.com/s/1jIEZF0q](http://pan.baidu.com/s/1jIEZF0q)<br>密码:yhe1
@@ -32,7 +35,7 @@
 |8.11|小燕之夜|[http://pan.baidu.com/s/1jIGv9nK](http://pan.baidu.com/s/1jIGv9nK)<br>密码:fekz|大学生了没|[http://pan.baidu.com/s/1i52Q1rZ](http://pan.baidu.com/s/1i52Q1rZ)<br>密码:pwd5
 |8.11|型男大主厨|[http://pan.baidu.com/s/1bJd2YM](http://pan.baidu.com/s/1bJd2YM)<br>密码:7xkt|女人我最大|[http://pan.baidu.com/s/1qYPCMOs](http://pan.baidu.com/s/1qYPCMOs)<br>密码:fs04
 |8.11|上班这党事|[http://pan.baidu.com/s/1hsNRlgK](http://pan.baidu.com/s/1hsNRlgK)<br>密码:2esi|2分之一強|[]()<br>密码:
-|8.11|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1qXRyzZe](http://pan.baidu.com/s/1qXRyzZe)<br>密码:vgzd
+|8.11|娱乐百分百|[http://pan.baidu.com/s/1dFuRgWD](http://pan.baidu.com/s/1dFuRgWD)<br>密码:swku|美凤有约|[http://pan.baidu.com/s/1qXRyzZe](http://pan.baidu.com/s/1qXRyzZe)<br>密码:vgzd
 |8.11|美食好简单|[http://pan.baidu.com/s/1hrIRo2o](http://pan.baidu.com/s/1hrIRo2o)<br>密码:k0m3|国光帮帮忙|[]()<br>密码:
 |8.11|爱玩客|[]()<br>密码:|医师好辣|[http://pan.baidu.com/s/1nv4elvz](http://pan.baidu.com/s/1nv4elvz)<br>密码:z04r
 |8.11|食尚玩家|[http://pan.baidu.com/s/1hsPTfM0](http://pan.baidu.com/s/1hsPTfM0)<br>密码:qvjx|请你跟我这样过|[]()<br>密码:
