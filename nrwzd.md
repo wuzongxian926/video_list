@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/11|拍照打卡 这样最多人按赞！|柳燕,小凯,潘慧如,陈薇,汪诗敏,Christine,夏宇童,芳瑜|[点击播放](http://www.bilibili.com/video/av5790378/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|海边超美不掉漆的 终极秘技！|吴依霖,Kevin,刘书宏,柯杰夫,王思佳,侬侬,陈薇,佩洁|[点击播放](http://www.bilibili.com/video/av5770056/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|你和女神只差了这一步 这样做就能变正|Kevin,柳燕,张家慧,汪诗敏,夏宇童,林琪璇,于嘉莹,Christine|[点击播放](http://www.bilibili.com/video/av5752637/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|摆脱一成不变 换个发型判若两人！|吴依霖,杨子仪,王毓翔,薇琪,赖薇如,詹子晴,陈薇,小Call,小筠|[点击播放](http://www.bilibili.com/video/av5728460/)|[网盘下载](http://xz.twzy.tw)

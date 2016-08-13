@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/11|百货专柜人员来爆料 你不知道的小撒步？！|玉菲,Sam,刘雨柔,洪素卿,韦汝|[点击播放](http://www.bilibili.com/video/av5790455/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|上班族的这些小习惯 体重就会直直往上飙？！|Sam,洪素卿,小彤,卢威廷|[点击播放](http://www.bilibili.com/video/av5770599/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|办公室超夯新美食 工作更加有活力？|余皓然,Sam,何嘉文,Erica|[点击播放](http://www.bilibili.com/video/av5753053/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|这几种同事别深交 否则受伤的就是你？！|余皓然,杨皓如,卢燕俐,林萃芬|[点击播放](http://www.bilibili.com/video/av5728582/)|[网盘下载](http://xz.twzy.tw)

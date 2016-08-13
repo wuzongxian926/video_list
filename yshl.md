@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/11|身体热出病？食物热出菌？！|谢忻,阿布,余皓然|[点击播放](http://www.bilibili.com/video/av5790382/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|大发现！原来我们都错了|五熊,郭鑫,Julie|[点击播放](http://www.bilibili.com/video/av5770355/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|恐怖！医院也有不定时炸弹？|徐小可,张克帆,林韦君|[点击播放](http://www.bilibili.com/video/av5752957/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/08|什么！看医师男女有别？|刘伊心,洪都拉斯,郑仲茵|[点击播放](http://www.bilibili.com/video/av5733908/)|[网盘下载](http://xz.twzy.tw)
