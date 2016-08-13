@@ -96,7 +96,7 @@
 |20160806|超级夜总会|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|超爱美小姐|今夏制霸海灘時尚穿搭|来宾|[点击播放](http://www.bilibili.com/video/av5686784/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|舞力全开|飛躍200金舞獎頒獎典禮 !|来宾|[点击播放](http://www.bilibili.com/video/av5759957/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160806|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160806|全民一起来|全民一起来|钟昀呈,小娴,民雄,林千又,高山峰,曾智希|[点击播放](http://www.acfun.tv/v/ac3019385)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160806|娱乐百分百|叫我美脑王|猪+威廉,林进,小A辣,郭郁承,Lamigirls(琳妲,Eli,曲曲)|[点击播放](http://www.acfun.tv/v/ac3013248)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160805|小燕之夜|爆红网路男神大PK|谢忻,海芬,田舞阳,李汉城,林圣尧,刘鸿敏,刘泓杰,凯晧|[点击播放](http://www.bilibili.com/video/av5681946/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160805|大学生了没|挥别乖乖女形象！今晚我要晋升百大美女！|陈凯文,椆椆|[点击播放](http://www.bilibili.com/video/av5686298/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
