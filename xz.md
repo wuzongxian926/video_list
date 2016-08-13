@@ -23,12 +23,11 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
-|8.12|综艺大热门|[]()<br>密码:|小燕之夜|[]()<br>密码:
-|8.12|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
-|8.12|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
+|8.12|小燕之夜|[]()<br>密码:|穿越康熙|[http://pan.baidu.com/s/1o8B3JLK](http://pan.baidu.com/s/1o8B3JLK)<br>密码:gl49
+|8.12|大学生了没|[http://pan.baidu.com/s/1c1TiN1Q](http://pan.baidu.com/s/1c1TiN1Q)<br>密码:lswj|型男大主厨|[]()<br>密码:
+|8.12|女人我最大|[http://pan.baidu.com/s/1dFbUqQl](http://pan.baidu.com/s/1dFbUqQl)<br>密码:42wp|上班这党事|[http://pan.baidu.com/s/1jIEZF0q](http://pan.baidu.com/s/1jIEZF0q)<br>密码:yhe1
 |8.12|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
 |8.12|美凤有约|[]()<br>密码:|美食好简单|[http://pan.baidu.com/s/1jIg3Jka](http://pan.baidu.com/s/1jIg3Jka)<br>密码:jf4n
-|8.12|穿越康熙|[]()<br>密码:|
 |8.11|综艺大热门|[http://pan.baidu.com/s/1o8MYVOI](http://pan.baidu.com/s/1o8MYVOI)<br>密码:mxwt|小明星大跟班|[http://pan.baidu.com/s/1dE6ggxz](http://pan.baidu.com/s/1dE6ggxz)<br>密码:iy5h
 |8.11|小燕之夜|[http://pan.baidu.com/s/1jIGv9nK](http://pan.baidu.com/s/1jIGv9nK)<br>密码:fekz|大学生了没|[http://pan.baidu.com/s/1i52Q1rZ](http://pan.baidu.com/s/1i52Q1rZ)<br>密码:pwd5
 |8.11|型男大主厨|[http://pan.baidu.com/s/1bJd2YM](http://pan.baidu.com/s/1bJd2YM)<br>密码:7xkt|女人我最大|[http://pan.baidu.com/s/1qYPCMOs](http://pan.baidu.com/s/1qYPCMOs)<br>密码:fs04
