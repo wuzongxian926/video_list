@@ -132,7 +132,7 @@
 |20160803|型男大主厨|槓上了！歐洲聯軍來挑戰，台歐Mix創意料理挑戰賽，現在開始～|来宾|[点击播放](http://www.acfun.tv/v/ac3000502)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|女人我最大|若是不打扮 就会输在起跑点！|林叶亭,PINK,赖薇如,Lydia,薇琪,亚美将,小Call,ANITA|[点击播放](http://www.bilibili.com/video/av5668224/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|上班这党事|艺人美丽的幕后高手 私房梳化密招大公开？！|沈玉琳,韦汝,刘雨柔,吕文婉|[点击播放](http://www.bilibili.com/video/av5664578/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160803|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160803|2分之一強|各国都有厉阴宅？型男不思议撞鬼经验！|花花(主持),陈珮骐,黄镫辉,黄荻钧|[点击播放](http://www.bilibili.com/video/av5790444/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|娱乐百分百|百分百LIVE|恺乐,威廉,霍正奇,莫棠予|[点击播放](http://www.bilibili.com/video/av5665289/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|美凤有约|美鳳上菜 深水炸彈烏龍麵|朱蓓苓、葉家妤|[点击播放](http://www.bilibili.com/video/av5696329/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160803|美食好简单|酱辣鸡翅 & 蚝菇丝瓜|温国智|[点击播放](http://www.bilibili.com/video/av5744281/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

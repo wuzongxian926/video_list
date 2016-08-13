@@ -65,3 +65,4 @@
 |2013/08/06|國光扭蛋機！父親節拆禮物大賞！||[点击播放](http://www.acfun.tv/v/ac3001967)(http://www.acfun.tv/v/ac2944496)|[网盘下载](http://xz.twzy.tw)
 |2013/07/10|進擊的誘惑！這樣叫我怎麼專心？！||[点击播放](http://www.acfun.tv/v/ac2944496)|[网盘下载](http://xz.twzy.tw)
 |2013/07/02|國光扭蛋機！夏日泳裝換衣大賞！！||[点击播放](http://www.acfun.tv/v/ac3003207)|[网盘下载](http://xz.twzy.tw)
+|2013/05/17|國光女神復古遊戲運動會！||[点击播放](http://www.acfun.tv/v/ac3018527)|[网盘下载](http://xz.twzy.tw)
