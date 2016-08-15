@@ -23,7 +23,7 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
-|8.13|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
+|8.13|综艺玩很大|[http://pan.baidu.com/s/1jHAFKgA](http://pan.baidu.com/s/1jHAFKgA)<br>密码:sg8j|天才冲冲冲|[]()<br>密码:
 |8.13|娱乐百分百|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1i57AkOP](http://pan.baidu.com/s/1i57AkOP)<br>密码:n7dq
 |8.13|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
 |8.12|小燕之夜|[http://pan.baidu.com/s/1dELFocx](http://pan.baidu.com/s/1dELFocx)<br>密码:b0pd|穿越康熙|[http://pan.baidu.com/s/1o8B3JLK](http://pan.baidu.com/s/1o8B3JLK)<br>密码:gl49
