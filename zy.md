@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160813|综艺玩很大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|综艺玩很大|台灣 小琉球(下)|吴宗宪,Kid,王仁甫,小净,杨晨熙,博焱,陈梦晨,罗莉塔,无尊|[点击播放](http://www.acfun.tv/v/ac3022322)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|超爱美小姐|時尚巨星日LULU 完整版|来宾|[点击播放](http://www.bilibili.com/video/av5801248/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
