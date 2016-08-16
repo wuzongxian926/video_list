@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/14|好人情 慢步調 來去鄉下住一晚！|来宾|[点击播放](http://www.bilibili.com/video/av5839665/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/07|Ep217 省荷包 交朋友 一起來當背包客！|来宾|[点击播放](http://www.bilibili.com/video/av5758843/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/31|蘭嶼 蛙人vs.懶人 玩法較勁!|来宾|[点击播放](http://www.acfun.tv/v/ac2952827)|[网盘下载](http://xz.twzy.tw)
 |2016/7/24|Ep215 雲林土庫 塗褲老拾光老生活老味道|来宾|[点击播放](http://www.acfun.tv/v/ac2933610)|[网盘下载](http://xz.twzy.tw)

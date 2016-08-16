@@ -34,8 +34,8 @@
 |8.15|穿越康熙|[]()<br>密码:|
 |8.14|名模出任务|[http://pan.baidu.com/s/1c1Q1jWG](http://pan.baidu.com/s/1c1Q1jWG)<br>密码:6t6x|超爱美小姐|[]()<br>密码:
 |8.14|综艺大集合|[http://pan.baidu.com/s/1o7QgPAy](http://pan.baidu.com/s/1o7QgPAy)<br>密码:vgpb|台湾名人堂|[]()<br>密码:
-|8.14|没玩没了|[]()<br>密码:|GOGO捷运|[]()<br>密码:
-|8.14|GoGoTaiwan|[]()<br>密码:|后宫生还战|[]()<br>密码:
+|8.14|没玩没了|[http://pan.baidu.com/s/1pLIn13d](http://pan.baidu.com/s/1pLIn13d)<br>密码:tvv3|GOGO捷运|[http://pan.baidu.com/s/1pLRaYP9](http://pan.baidu.com/s/1pLRaYP9)<br>密码:w5l4
+|8.14|GoGoTaiwan|[http://pan.baidu.com/s/1kVtti8f](http://pan.baidu.com/s/1kVtti8f)<br>密码:hcmi|后宫生还战|[]()<br>密码:
 |8.13|综艺玩很大|[http://pan.baidu.com/s/1jHAFKgA](http://pan.baidu.com/s/1jHAFKgA)<br>密码:sg8j|天才冲冲冲|[]()<br>密码:
 |8.13|娱乐百分百|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1i57AkOP](http://pan.baidu.com/s/1i57AkOP)<br>密码:n7dq
 |8.13|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
