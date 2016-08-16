@@ -118,7 +118,7 @@
 |20160807|名模出任务|夏天就是要玩水6|沈玉琳,李懿,陈育涵,潘胤杰,黄冠喨,李沛旭,陈思璇,曾智希,成语荞,大恺|[点击播放](http://www.acfun.tv/v/ac3018041)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|超爱美小姐|婚礼好好玩|Apple,Ann,Nikki|[点击播放](http://www.bilibili.com/video/av5705934/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|综艺大集合|台中·和平|红毛,卡古,洁哥,郭忠佑,饼干,蔡允洁,小晰晰|[点击播放](http://www.bilibili.com/video/av5761832/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160807|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160807|台湾名人堂|資深藝人_侯麗芳|侯麗芳|[点击播放](http://www.bilibili.com/video/av5836442/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|没玩没了|連賴皮乃都賴不掉的烤乳豬重現江湖【第4集完整版 EP4】|来宾|[点击播放](http://www.bilibili.com/video/av5761662/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|GOGO捷运|第42集《板南線-忠孝復興站》|来宾|[点击播放](http://www.bilibili.com/video/av5758205/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160807|GoGoTaiwan|Ep217 省荷包 交朋友 一起來當背包客！|来宾|[点击播放](http://www.bilibili.com/video/av5758843/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
