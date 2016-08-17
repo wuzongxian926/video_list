@@ -12,7 +12,7 @@
 |20160816|女人我最大|从18岁穿到48岁 卡通单品万年不败！！|佑群,Kevin,温翠萍,梁佑南,芳瑜,关诗敏,Hannah,纪卜心|[点击播放](http://www.bilibili.com/video/av5866374/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|上班这党事|腰腹肉皮肤干记忆差 小招就能年轻又窈窕？！|韦汝,Sam,刘雨柔,洪素卿|[点击播放](http://www.bilibili.com/video/av5866388/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160816|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160816|娱乐百分百|明星Now Go没|恺弟,毛弟,凯莉,杨升达|[点击播放](http://www.acfun.tv/v/ac3029815)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|美食好简单|韭黄去骨鸡翅 & 梅香虾球|温国智|[点击播放](http://www.bilibili.com/video/av5861444/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|国光帮帮忙|意想不到！他们竟然是同班同学？！|卡古,雨婷,无尊,Albee,金妮,萱野可芳,Sunnee,包庭政,胡晓芳,管馨|[点击播放](http://www.acfun.tv/v/ac3028296_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
