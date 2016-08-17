@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/15|明星真的愛亂花錢？|来宾|[点击播放](http://www.acfun.tv/v/ac3024640)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|是誰有問題|来宾|[点击播放](http://www.bilibili.com/video/av5797665/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/11|這兒的秘密特別多？！|来宾|[点击播放](http://www.bilibili.com/video/av5773008/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|前情人禮物交換大會|来宾|[点击播放](http://www.bilibili.com/video/av5758778/)|[网盘下载](http://xz.twzy.tw)
