@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/16|腰腹肉皮肤干记忆差 小招就能年轻又窈窕？！|韦汝,Sam,刘雨柔,洪素卿|[点击播放](http://www.bilibili.com/video/av5866388/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|同事在这时候就变个样 弄到你该怎么自保？|沈玉琳,杨皓如,Sam,玉菲|[点击播放](http://www.bilibili.com/video/av5857922/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|狐狸精真的有很多 這些小動作該怎麼辦_!|来宾|[点击播放](http://www.bilibili.com/video/av5797875/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/11|百货专柜人员来爆料 你不知道的小撒步？！|玉菲,Sam,刘雨柔,洪素卿,韦汝|[点击播放](http://www.bilibili.com/video/av5790455/)|[网盘下载](http://xz.twzy.tw)
