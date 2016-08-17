@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/15|宝贝！你在动什么歪脑筋我都知道！|大根妈,王宏哲(亲子专家)|[点击播放](http://www.bilibili.com/video/av5857947/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|男人不懂的女人穿搭！！|小四,小茉莉|[点击播放](http://www.bilibili.com/video/av5801495/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/11|白色巨塔的难言之隐？！医师真命苦！！|曹西平|[点击播放](http://www.bilibili.com/video/av5788448/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|他们比姐妹更姐妹？！每个女人身边都想要有一个GAY蜜！|王思佳,张祖诚|[点击播放](http://www.bilibili.com/video/av5769795/)|[网盘下载](http://xz.twzy.tw)
