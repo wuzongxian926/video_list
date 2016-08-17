@@ -8,7 +8,7 @@
 |20160816|小明星大跟班|谁有最强DNA？！艺能星二代排位战！！|濑上麻里奈,曾治豪,葛子杨,黄圣雅,吴亦帆|[点击播放](http://www.tudou.com/programs/view/fiumIGLh2BU/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|大学生了没|我是姐妹的工具人！丫鬟好心酸！！|Sacula,嘻小瓜,玛莉亚,安苡爱|[点击播放](http://www.bilibili.com/video/av5866487/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160816|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160816|型男大主厨|KC5超省时台湾小吃：蚵仔包+鱿鱼肉羹面+腐皮龙凤捲+凉拌酸辣泡面+花莲扁食|依依,叶玮庭,沈玉琳,郭源元,主厨:王辅立,吴秉承,郭主义,詹姆士,阿基师|[点击播放](http://www.acfun.tv/v/ac3029622)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|女人我最大|从18岁穿到48岁 卡通单品万年不败！！|佑群,Kevin,温翠萍,梁佑南,芳瑜,关诗敏,Hannah,纪卜心|[点击播放](http://www.bilibili.com/video/av5866374/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|上班这党事|腰腹肉皮肤干记忆差 小招就能年轻又窈窕？！|韦汝,Sam,刘雨柔,洪素卿|[点击播放](http://www.bilibili.com/video/av5866388/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
