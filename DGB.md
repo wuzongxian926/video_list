@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/16|谁有最强DNA？！艺能星二代排位战！！|濑上麻里奈,曾治豪,葛子杨,黄圣雅,吴亦帆|[点击播放](http://www.tudou.com/programs/view/fiumIGLh2BU/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|單親父女好多尷尬！為什麼我不能有媽媽？！|来宾|[点击播放](http://www.tudou.com/programs/view/qJ4B5Bm2EHo/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/11|原谅or拆伙？！搭档告解大会！！|孙协志,王仁甫,陈明仁,吴廷宏,Mia,Yumi,阿虎,卡古,杨晨熙,陈嘉行|[点击播放](http://www.tudou.com/programs/view/eGCL8u4lNIg/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/10|女谐星恋爱悲歌？宪哥帮你挑男友！|张兆志,陈德烈,詹子晴,廖慧珍,黄乔歆,Amanda|[点击播放](http://www.tudou.com/programs/view/Ls78A8utweM/)|[网盘下载](http://xz.twzy.tw)
