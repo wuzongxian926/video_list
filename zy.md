@@ -6,7 +6,7 @@
 ----|----|----|----|----|----|----
 |20160816|综艺大热门|长那么大还没见过！奇怪乐器到底有多怪？|陈升,阿Van,小钟,屋希耶泽,许书豪,康妮媚,A-Ruei,康祯庭,游明圣,黄牛,魏亚民|[点击播放](http://www.acfun.tv/v/ac3028296)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|小明星大跟班|谁有最强DNA？！艺能星二代排位战！！|濑上麻里奈,曾治豪,葛子杨,黄圣雅,吴亦帆|[点击播放](http://www.tudou.com/programs/view/fiumIGLh2BU/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160816|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160816|小燕之夜|女人礼服下的秘密|李明川,张珈瑜,隋玲,李懿,曾智希,王尹平|[点击播放](http://www.bilibili.com/video/av5871799/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|大学生了没|我是姐妹的工具人！丫鬟好心酸！！|Sacula,嘻小瓜,玛莉亚,安苡爱|[点击播放](http://www.bilibili.com/video/av5866487/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|型男大主厨|KC5超省时台湾小吃：蚵仔包+鱿鱼肉羹面+腐皮龙凤捲+凉拌酸辣泡面+花莲扁食|依依,叶玮庭,沈玉琳,郭源元,主厨:王辅立,吴秉承,郭主义,詹姆士,阿基师|[点击播放](http://www.acfun.tv/v/ac3029622)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|女人我最大|从18岁穿到48岁 卡通单品万年不败！！|佑群,Kevin,温翠萍,梁佑南,芳瑜,关诗敏,Hannah,纪卜心|[点击播放](http://www.bilibili.com/video/av5866374/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
