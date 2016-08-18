@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/17|水星逆行掰掰 2016下半年星座运势大公开！！|安格斯,郑嘉琳|[点击播放](http://www.bilibili.com/video/av5887108/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|我是姐妹的工具人！丫鬟好心酸！！|Sacula,嘻小瓜,玛莉亚,安苡爱|[点击播放](http://www.bilibili.com/video/av5866487/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|宝贝！你在动什么歪脑筋我都知道！|大根妈,王宏哲(亲子专家)|[点击播放](http://www.bilibili.com/video/av5857947/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|男人不懂的女人穿搭！！|小四,小茉莉|[点击播放](http://www.bilibili.com/video/av5801495/)|[网盘下载](http://xz.twzy.tw)

@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/13|【第201集】明星舞王舞后爭霸賽 !|来宾|[点击播放](http://www.bilibili.com/video/av5878576/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/06|飛躍200金舞獎頒獎典禮 !|来宾|[点击播放](http://www.bilibili.com/video/av5759957/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/30|明星舞王舞后前進小巨蛋特別企劃 & 2016CTC世界盃國際標準舞公開賽!|来宾|[点击播放](http://www.bilibili.com/video/av5662505/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/23|【第198集】明星舞王舞后爭霸賽 藝人獎金挑戰賽|来宾|[点击播放](http://www.acfun.tv/v/ac2938832)|[网盘下载](http://xz.twzy.tw)
