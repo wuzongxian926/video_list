@@ -4,6 +4,22 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160817|小明星大跟班|神秘客来袭！！明星开店残酷排行|林道远,刘书宏,黄锦雯,陈致远,田舞阳,小钟,哈孝远,徐天麟,柯俊年,Erica|[点击播放](http://www.tudou.com/programs/view/OcKj4LTSWvk/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|型男大主厨|全新2选1帮帮我料理赛：龙汁杏鲍菇 & 葱爆双鱿|Terry,罗美玲,陈樱文,大夫,主厨:阿基师,詹姆士,吴秉承,王辅立|[点击播放](http://www.acfun.tv/v/ac3031802)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|美凤有约|美鳳上菜 鳳梨苦瓜雞湯、翻滾培根蛋炒飯|亞美將、李明達|[点击播放](http://www.bilibili.com/video/av5875178/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|国光帮帮忙|你不会相信 这些事情男人也会怕|包伟铭,颜正国,李罗,潘若迪,大文,王宣,莫莉|[点击播放](http://www.acfun.tv/v/ac3031802_2)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160817|穿越康熙|名嘴的生存之道|来宾|[点击播放](http://www.bilibili.com/video/av5875575/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|综艺大热门|长那么大还没见过！奇怪乐器到底有多怪？|陈升,阿Van,小钟,屋希耶泽,许书豪,康妮媚,A-Ruei,康祯庭,游明圣,黄牛,魏亚民|[点击播放](http://www.acfun.tv/v/ac3028296)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|小明星大跟班|谁有最强DNA？！艺能星二代排位战！！|濑上麻里奈,曾治豪,葛子杨,黄圣雅,吴亦帆|[点击播放](http://www.tudou.com/programs/view/fiumIGLh2BU/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160816|小燕之夜|女人礼服下的秘密|李明川,张珈瑜,隋玲,李懿,曾智希,王尹平|[点击播放](http://www.bilibili.com/video/av5871799/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/17|名嘴的生存之道|来宾|[点击播放](http://www.bilibili.com/video/av5875575/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|一定要聽這首歌|来宾|[点击播放](http://www.bilibili.com/video/av5861937/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|明星真的愛亂花錢？|来宾|[点击播放](http://www.acfun.tv/v/ac3024640)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|是誰有問題|来宾|[点击播放](http://www.bilibili.com/video/av5797665/)|[网盘下载](http://xz.twzy.tw)
