@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/17|百分百游戏王|恺乐,威廉,凯莉,黄沐妍,无尊,凯希,刘书宏,嘻小瓜|[点击播放](http://www.acfun.tv/v/ac3033183)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|明星Now Go没|恺弟,毛弟,凯莉,杨升达|[点击播放](http://www.acfun.tv/v/ac3029815)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|明星Now Go没|恺乐,毛弟,林进,Amanda,凯莉,饼干,嘻小瓜,杨升达|[点击播放](http://www.acfun.tv/v/ac3028618)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|粉Meeting|恺乐,威廉,天气女孩(Mia,Yumi,NueNue,Ria,Hijon)|[点击播放](http://www.acfun.tv/v/ac3024965)|[网盘下载](http://xz.twzy.tw)

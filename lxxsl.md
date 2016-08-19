@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/16|日剧迷启航 直击海女现身|冯媛甄,郭亚棠,郭人荣|[点击播放](http://www.bilibili.com/video/av5892355/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|轻松玩出炎夏水嫩肌|何妤玟,刘雨柔,濑上刚|[点击播放](http://www.bilibili.com/video/av5770763/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/02|走啰！顶级渡假村大特搜|王滢,GiGi,温士凯|[点击播放](http://www.bilibili.com/video/av5658601/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/26|台日名胜美景新鲜玩|柯以柔,杨子仪,宋明桦|[点击播放](http://www.acfun.tv/v/ac2938563)|[网盘下载](http://xz.twzy.tw)
