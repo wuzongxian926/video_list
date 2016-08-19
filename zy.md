@@ -84,7 +84,7 @@
 |20160813|天才冲冲冲|跳跳Tempo & 你是Word演 & EAR传耳ABC|关诗敏,林彦君,徐小可,NONO,林炜,利晴天,班杰,陈樱文,Apple,伊正|[点击播放](http://www.acfun.tv/v/ac3021650)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|超爱美小姐|時尚巨星日LULU 完整版|来宾|[点击播放](http://www.bilibili.com/video/av5801248/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|舞力全开|【第201集】明星舞王舞后爭霸賽 !|来宾|[点击播放](http://www.bilibili.com/video/av5878576/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160813|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160813|全民一起来|全民一起来|陈国华,IVY,侯昌明,曾雅兰,陈致远,林秀琴,黄镫辉,萁萁|[点击播放](http://www.acfun.tv/v/ac3034390)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160813|娱乐百分百|陈升队吉董团火药味十足|恺乐,威廉,新宝岛康乐队,董事长乐团,台湾爽乐团,H.T.J乐团|[点击播放](http://www.acfun.tv/v/ac3027610)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|小燕之夜|为了牠 你能做的事？|王治平,张祖诚,阿纬,小煜,黄荻钧,路嘉欣,狸猫,志铭,刘雅芬,查理|[点击播放](http://www.bilibili.com/video/av5802663/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160812|大学生了没|男人不懂的女人穿搭！！|小四,小茉莉|[点击播放](http://www.bilibili.com/video/av5801495/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
