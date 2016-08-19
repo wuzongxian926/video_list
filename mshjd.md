@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/18|客式腌瓜蒸鱼 & 豉汁龙须仿土鸡|温国智|[点击播放](http://www.bilibili.com/video/av5892019/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|韭黄去骨鸡翅 & 梅香虾球|温国智|[点击播放](http://www.bilibili.com/video/av5861444/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|萝卜玉米渍秋刀鱼 & 冬菜焖胡瓜|温国智|[点击播放](http://www.acfun.tv/v/ac3024616)|[网盘下载](http://xz.twzy.tw)
 |2016/8/12|芋香米粉汤 & 蜜芋头|微微蔡|[点击播放](http://www.bilibili.com/video/av5792057/)|[网盘下载](http://xz.twzy.tw)
