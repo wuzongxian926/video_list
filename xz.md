@@ -23,6 +23,15 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
+|8.18|综艺大热门|[http://pan.baidu.com/s/1i4Mnyz7](http://pan.baidu.com/s/1i4Mnyz7)<br>密码:8c74|小明星大跟班|[http://pan.baidu.com/s/1boAUt23](http://pan.baidu.com/s/1boAUt23)<br>密码:652q
+|8.18|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
+|8.18|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|8.18|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
+|8.18|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1bLfIKA](http://pan.baidu.com/s/1bLfIKA)<br>密码:qyoa
+|8.18|美食好简单|[http://pan.baidu.com/s/1kUHzCd5](http://pan.baidu.com/s/1kUHzCd5)<br>密码:yrcj|国光帮帮忙|[]()<br>密码:
+|8.18|爱玩客|[http://pan.baidu.com/s/1o8dEhNc](http://pan.baidu.com/s/1o8dEhNc)<br>密码:mw2v|医师好辣|[]()<br>密码:
+|8.18|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
+|8.18|穿越康熙|[http://pan.baidu.com/s/1eROvwZK](http://pan.baidu.com/s/1eROvwZK)<br>密码:izia|
 |8.17|小明星大跟班|[http://pan.baidu.com/s/1mig0dk8](http://pan.baidu.com/s/1mig0dk8)<br>密码:pplc|
 |8.17|小燕之夜|[http://pan.baidu.com/s/1i4VaO9v](http://pan.baidu.com/s/1i4VaO9v)<br>密码:kx3h|大学生了没|[http://pan.baidu.com/s/1eR6K0L0](http://pan.baidu.com/s/1eR6K0L0)<br>密码:0yrg
 |8.17|型男大主厨|[http://pan.baidu.com/s/1boDCieF](http://pan.baidu.com/s/1boDCieF)<br>密码:a577|女人我最大|[http://pan.baidu.com/s/1o8OvrRW](http://pan.baidu.com/s/1o8OvrRW)<br>密码:bm36

@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/18|开刀房不告诉你的事！|潘慧如,星星王子,丁宁|[点击播放](http://www.bilibili.com/video/av5904738/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/17|原来这些病 可以根治？！|Ruby,蒋伟文,叶家妤|[点击播放](http://www.bilibili.com/video/av5887150/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|最强抗老术 减龄超EASY？！|王靖文,赵正平,曾雅兰|[点击播放](http://www.bilibili.com/video/av5866152/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/15|医师看病心惊惊？|GiGi,王少伟,何妤玟|[点击播放](http://www.bilibili.com/video/av5857864/)|[网盘下载](http://xz.twzy.tw)
