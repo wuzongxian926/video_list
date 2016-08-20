@@ -4,6 +4,17 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160819|综艺大热门|超疯der！怪怪奥林匹克运动会！|郭彦均,田舞阳,大根,无尊,天气女孩(NueNue,小米儿,YuMi,HiJon,Ria),LamiGirls(Mia,曲曲,小布,琳妲,卉妮)|[点击播放](http://www.acfun.tv/v/ac3036044)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160819|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160818|综艺大热门|你讲的过他们吗？大人小孩辩论大战开打！|王仁甫,岑永康,吕文婉,辛龙,艾瑞丝,格格,文馨,宋小鱼|[点击播放](http://www.acfun.tv/v/ac3034047)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160818|小明星大跟班|一灶不容二妇？！婆媳告解大会！！|沛小岚,怡君,Paul妈,咪咪,小鱼妈,佩佩,樱文婆婆,陈樱文|[点击播放](http://www.tudou.com/programs/view/8d5gUkbM6L4/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160818|小燕之夜|是人吓人？还是鬼吓人？|陈为民,郭彦均,小优,夏和熙,Eason|[点击播放](http://www.bilibili.com/video/av5905422/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/8/19|超疯der！怪怪奥林匹克运动会！|郭彦均,田舞阳,大根,无尊,天气女孩(NueNue,小米儿,YuMi,HiJon,Ria),LamiGirls(Mia,曲曲,小布,琳妲,卉妮)|[点击播放](http://www.acfun.tv/v/ac3036044)|[网盘](http://xz.twzy.tw)
 |2016/8/18|你讲的过他们吗？大人小孩辩论大战开打！|王仁甫,岑永康,吕文婉,辛龙,艾瑞丝,格格,文馨,宋小鱼|[点击播放](http://www.acfun.tv/v/ac3034047)|[网盘](http://xz.twzy.tw)
 |2016/8/16|长那么大还没见过！奇怪乐器到底有多怪？|陈升,阿Van,小钟,屋希耶泽,许书豪,康妮媚,A-Ruei,康祯庭,游明圣,黄牛,魏亚民|[点击播放](http://www.acfun.tv/v/ac3028296)|[网盘](http://xz.twzy.tw)
 |2016/8/15|生小孩不是只有媽媽苦！！拜託！我也一堆苦水想吐！|来宾|[点击播放](http://www.acfun.tv/v/ac3024941)|[网盘](http://xz.twzy.tw)

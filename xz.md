@@ -23,6 +23,12 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
+|8.19|综艺大热门|[http://pan.baidu.com/s/1qY4E04s](http://pan.baidu.com/s/1qY4E04s)<br>密码:ciqq
+|8.19|小燕之夜|[]()<br>密码:|穿越康熙|[]()<br>密码:
+|8.19|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
+|8.19|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
+|8.19|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
+|8.19|美凤有约|[]()<br>密码:|美食好简单|[]()<br>密码:
 |8.18|综艺大热门|[http://pan.baidu.com/s/1i4Mnyz7](http://pan.baidu.com/s/1i4Mnyz7)<br>密码:8c74|小明星大跟班|[http://pan.baidu.com/s/1boAUt23](http://pan.baidu.com/s/1boAUt23)<br>密码:652q
 |8.18|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
 |8.18|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
