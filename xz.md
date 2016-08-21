@@ -24,9 +24,9 @@
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |8.19|综艺大热门|[http://pan.baidu.com/s/1qY4E04s](http://pan.baidu.com/s/1qY4E04s)<br>密码:ciqq
-|8.19|小燕之夜|[]()<br>密码:|穿越康熙|[]()<br>密码:
-|8.19|大学生了没|[]()<br>密码:|型男大主厨|[]()<br>密码:
-|8.19|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
+|8.19|小燕之夜|[http://pan.baidu.com/s/1qY8InQ8](http://pan.baidu.com/s/1qY8InQ8)<br>密码:d4mw|穿越康熙|[http://pan.baidu.com/s/1bLLLBS](http://pan.baidu.com/s/1bLLLBS)<br>密码:snlb
+|8.19|大学生了没|[http://pan.baidu.com/s/1bS7zmm](http://pan.baidu.com/s/1bS7zmm)<br>密码:jkkk|型男大主厨|[]()<br>密码:
+|8.19|女人我最大|[http://pan.baidu.com/s/1bpeaEp5](http://pan.baidu.com/s/1bpeaEp5)<br>密码:ofhd|上班这党事|[http://pan.baidu.com/s/1slL70Hf](http://pan.baidu.com/s/1slL70Hf)<br>密码:bbwt
 |8.19|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
 |8.19|美凤有约|[]()<br>密码:|美食好简单|[http://pan.baidu.com/s/1pL90lbt](http://pan.baidu.com/s/1pL90lbt)<br>密码:wm0a
 |8.18|综艺大热门|[http://pan.baidu.com/s/1i4Mnyz7](http://pan.baidu.com/s/1i4Mnyz7)<br>密码:8c74|小明星大跟班|[http://pan.baidu.com/s/1boAUt23](http://pan.baidu.com/s/1boAUt23)<br>密码:652q
@@ -65,7 +65,7 @@
 |8.15|爱玩客|[http://pan.baidu.com/s/1kV8Smqz](http://pan.baidu.com/s/1kV8Smqz)<br>密码:gnkf|医师好辣|[http://pan.baidu.com/s/1c1Q1kKo](http://pan.baidu.com/s/1c1Q1kKo)<br>密码:vten
 |8.15|食尚玩家|[http://pan.baidu.com/s/1skHntzn](http://pan.baidu.com/s/1skHntzn)<br>密码:rbcx|请你跟我这样过|[http://pan.baidu.com/s/1jIRRov8](http://pan.baidu.com/s/1jIRRov8)<br>密码:jpdh
 |8.15|穿越康熙|[http://pan.baidu.com/s/1bpmNQnd](http://pan.baidu.com/s/1bpmNQnd)<br>密码:cd4e|
-|8.14|名模出任务|[http://pan.baidu.com/s/1c1Q1jWG](http://pan.baidu.com/s/1c1Q1jWG)<br>密码:6t6x|超爱美小姐|[]()<br>密码:
+|8.14|名模出任务|[http://pan.baidu.com/s/1c1Q1jWG](http://pan.baidu.com/s/1c1Q1jWG)<br>密码:6t6x|超爱美小姐|[http://pan.baidu.com/s/1nv3yGoL](http://pan.baidu.com/s/1nv3yGoL)<br>密码:ovjt
 |8.14|综艺大集合|[http://pan.baidu.com/s/1o7QgPAy](http://pan.baidu.com/s/1o7QgPAy)<br>密码:vgpb|台湾名人堂|[]()<br>密码:
 |8.14|没玩没了|[http://pan.baidu.com/s/1pLIn13d](http://pan.baidu.com/s/1pLIn13d)<br>密码:tvv3|GOGO捷运|[http://pan.baidu.com/s/1pLRaYP9](http://pan.baidu.com/s/1pLRaYP9)<br>密码:w5l4
 |8.14|GoGoTaiwan|[http://pan.baidu.com/s/1kVtti8f](http://pan.baidu.com/s/1kVtti8f)<br>密码:hcmi|后宫生还战|[http://pan.baidu.com/s/1bpwrv9X](http://pan.baidu.com/s/1bpwrv9X)<br>密码:wzzg
