@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/20|韵脚Tempo & 接龙Tempo & Where Tempo|林辉瑝,赵孟姿,Eason,廖家仪,王仁甫,黄安琪,曾智希,杨升达,杜诗梅,洪都拉斯|[点击播放](http://www.acfun.tv/v/ac3041178)|[网盘下载](http://xz.twzy.tw)
 |2016/8/13|跳跳Tempo & 你是Word演 & EAR传耳ABC|关诗敏,林彦君,徐小可,NONO,林炜,利晴天,班杰,陈樱文,Apple,伊正|[点击播放](http://www.acfun.tv/v/ac3021650)|[网盘下载](http://xz.twzy.tw)
 |2016/8/06|父亲节特别企划 动词Tempo & 联想Tempo & 不可能的默契|孙协志,陈大天,张立东,许富凯,姚淳耀,郭彦均,鲔鱼,柯叔元,浩角翔起(浩子,阿翔)|[点击播放](http://www.acfun.tv/v/ac3017324)|[网盘下载](http://xz.twzy.tw)
 |2016/7/30|会演是英雄 & EAR传耳ABC & 接龙Tempo|钱俞安,贝童彤,五熊,潘若迪,小娴,小钟,曹雅雯,夏宇童,杨小黎,Junior|[点击播放](http://www.acfun.tv/v/ac3001886)|[网盘下载](http://xz.twzy.tw)

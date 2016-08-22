@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160820|综艺玩很大|两周年特别企划|吴宗宪,Kid,曹西平,邰智源,吴怡霈,熊熊,林采缇,凯莉,AND(雨婷,Sunnee,宇宙),SpeXial(伟晋,明杰,子闳,Teddy,风田),王中平,无尊,黄豪平|[点击播放](http://www.acfun.tv/v/ac3040350)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160820|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160820|天才冲冲冲|韵脚Tempo & 接龙Tempo & Where Tempo|林辉瑝,赵孟姿,Eason,廖家仪,王仁甫,黄安琪,曾智希,杨升达,杜诗梅,洪都拉斯|[点击播放](http://www.acfun.tv/v/ac3041178)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160820|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160820|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160820|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
