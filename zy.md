@@ -4,6 +4,12 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160820|综艺玩很大|两周年特别企划|吴宗宪,Kid,曹西平,邰智源,吴怡霈,熊熊,林采缇,凯莉,AND(雨婷,Sunnee,宇宙),SpeXial(伟晋,明杰,子闳,Teddy,风田),王中平,无尊,黄豪平|[点击播放](http://www.acfun.tv/v/ac3040350)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160820|天才冲冲冲|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160820|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160820|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160820|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160820|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160819|综艺大热门|超疯der！怪怪奥林匹克运动会！|郭彦均,田舞阳,大根,无尊,天气女孩(NueNue,小米儿,YuMi,HiJon,Ria),LamiGirls(Mia,曲曲,小布,琳妲,卉妮)|[点击播放](http://www.acfun.tv/v/ac3036044)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160819|小燕之夜|老天爷！我也好想谈恋爱！|王少伟,姚以缇,大根,夏语心,哈孝远,邱永林,郑嘉琳,安格斯,艾莉丝|[点击播放](http://www.bilibili.com/video/av5926468/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160819|大学生了没|一窥网路Model的穿衣术！！激瘦、爆高、拉长比例！！|朱咩(穿搭部落客),小恩(摄影师)|[点击播放](http://www.bilibili.com/video/av5926564/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
