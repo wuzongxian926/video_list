@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160822|综艺大热门|2100热门开讲！今晚说清楚讲明白！|沈玉琳,黄沐妍,曹西平,吕文婉,苦苓|[点击播放](http://www.acfun.tv/v/ac3042961)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160822|综艺大热门|2100热门开讲！今晚说清楚讲明白！|沈玉琳,黄沐妍,曹西平,吕文婉,苦苓|[点击播放](http://www.acfun.tv/v/ac3045003)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160822|小明星大跟班|爸妈大小眼 我曾经不想当你的兄弟姐妹！！|詹子晴,詹少伦,林佩遥,小鼻,博焱,林佩桦,山猪,陈玫瑾,蔡允洁,蔡至翔|[点击播放](http://www.tudou.com/programs/view/ChxWCveb2Qc/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160822|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160822|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
