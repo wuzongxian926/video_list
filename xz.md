@@ -25,14 +25,14 @@
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |8.22|综艺大热门|[http://pan.baidu.com/s/1qXDRRI0](http://pan.baidu.com/s/1qXDRRI0)<br>密码:smer|小明星大跟班|[http://pan.baidu.com/s/1nuKJ7nz](http://pan.baidu.com/s/1nuKJ7nz)<br>密码:b7u6
 |8.22|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|8.22|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|8.22|型男大主厨|[http://pan.baidu.com/s/1eR6eK4U](http://pan.baidu.com/s/1eR6eK4U)<br>密码:1dvv|女人我最大|[]()<br>密码:
 |8.22|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |8.22|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |8.22|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
 |8.22|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
 |8.22|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |8.22|穿越康熙|[]()<br>密码:|
-|8.21|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
+|8.21|名模出任务|[http://pan.baidu.com/s/1i5O5Hxr](http://pan.baidu.com/s/1i5O5Hxr)<br>密码:r8jk|超爱美小姐|[]()<br>密码:
 |8.21|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
 |8.21|没玩没了|[]()<br>密码:|GOGO捷运|[]()<br>密码:
 |8.21|GoGoTaiwan|[]()<br>密码:|后宫生还战|[]()<br>密码:
