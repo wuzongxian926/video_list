@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/23|夏季养颜好料理 银耳雪百松菜羹|刘怡里,雷议宗|[点击播放](http://www.bilibili.com/video/av5987507/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/18|美鳳上菜 洋蔥番茄清湯、涼拌山藥|余朱青、布蘭妮|[点击播放](http://www.bilibili.com/video/av5891590/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/17|美鳳上菜 鳳梨苦瓜雞湯、翻滾培根蛋炒飯|亞美將、李明達|[点击播放](http://www.bilibili.com/video/av5875178/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/11|黑猫时尚厨房 酱瓜清蒸鱼|陈樱文,蔡季芳|[点击播放](http://www.bilibili.com/video/av5772149/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
