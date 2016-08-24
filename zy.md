@@ -4,11 +4,11 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160823|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160823|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|综艺大热门|什么！你也叫宗宪？新旧菜市场名大集合！|黄姵嘉,赵骏亚,杨晨熙,詹惟中|[点击播放](http://www.aixifan.com/v/ac3047243)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|小明星大跟班|史上Key最不准的歌唱比赛？！以歌会友音痴大赛|黄靖伦,翁立友,金智娟,许常德,梁赫群,小Call,林千又,谢忻|[点击播放](http://www.tudou.com/programs/view/332rRRCNtWw/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160823|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|型男大主厨|办桌打包菜大变身-德国猪脚鸡腿：纽澳良杂菜饭 & 办桌手路菜大赏：文思豆腐+梅花捆烧鳗|陈升,阿Van,主厨:王辅立,阿基师,吴秉承|[点击播放](http://www.aixifan.com/v/ac3047203)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -16,11 +16,11 @@
 |20160823|美凤有约|夏季养颜好料理 银耳雪百松菜羹|	刘怡里,雷议宗|[点击播放](http://www.bilibili.com/video/av5987507/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|美食好简单|蟹黄人参叶 & 酒香大蒜海瓜子|温国智|[点击播放](http://www.bilibili.com/video/av5975112/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160823|爱玩客|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|爱玩客|为了吃 老詹哪里都能煮！|詹姆士,张棋惠,朱芯仪,张珮莹,高蕾雅,韦汝,袁艾菲|[点击播放](http://www.aixifan.com/v/ac3047148)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160823|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|穿越康熙|他們真的不是馬路三寶？|来宾|[点击播放](http://www.bilibili.com/video/av5983840/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|流行新势力|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160822|综艺大热门|2100热门开讲！今晚说清楚讲明白！|沈玉琳,黄沐妍,曹西平,吕文婉,苦苓|[点击播放](http://www.acfun.tv/v/ac3045003)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160822|小明星大跟班|爸妈大小眼 我曾经不想当你的兄弟姐妹！！|詹子晴,詹少伦,林佩遥,小鼻,博焱,林佩桦,山猪,陈玫瑾,蔡允洁,蔡至翔|[点击播放](http://www.tudou.com/programs/view/ChxWCveb2Qc/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
