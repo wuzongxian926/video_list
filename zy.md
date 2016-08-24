@@ -15,7 +15,7 @@
 |20160823|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|美凤有约|夏季养颜好料理 银耳雪百松菜羹|	刘怡里,雷议宗|[点击播放](http://www.bilibili.com/video/av5987507/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|美食好简单|蟹黄人参叶 & 酒香大蒜海瓜子|温国智|[点击播放](http://www.bilibili.com/video/av5975112/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160823|国光帮帮忙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|国光帮帮忙|这些女生都没交过男朋友？！|张兆志,大恺|[点击播放](http://www.aixifan.com/v/ac3047097)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|爱玩客|为了吃 老詹哪里都能煮！|詹姆士,张棋惠,朱芯仪,张珮莹,高蕾雅,韦汝,袁艾菲|[点击播放](http://www.aixifan.com/v/ac3047148)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
