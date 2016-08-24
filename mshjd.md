@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/22|雪菜起士鸡肉卷 & 双椒玉子蛋|温国智|[点击播放](http://www.bilibili.com/video/av5958452/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/19|港式蜜汁叉烧肉 & 咖喱蜜汁叉烧酥|微微蔡|[点击播放](http://www.bilibili.com/video/av5903115/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/18|客式腌瓜蒸鱼 & 豉汁龙须仿土鸡|温国智|[点击播放](http://www.bilibili.com/video/av5892019/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|韭黄去骨鸡翅 & 梅香虾球|温国智|[点击播放](http://www.bilibili.com/video/av5861444/)|[网盘下载](http://xz.twzy.tw)

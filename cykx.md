@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/22|演藝圈真的好黑暗？|来宾|[点击播放](http://www.bilibili.com/video/av5964837/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/19|藝人私底下是這個樣？！|来宾|[点击播放](http://www.bilibili.com/video/av5908104/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/18|他們出道前竟做過這些工作？！|来宾|[点击播放](http://www.bilibili.com/video/av5892556/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/17|名嘴的生存之道|来宾|[点击播放](http://www.bilibili.com/video/av5875575/)|[网盘下载](http://xz.twzy.tw)

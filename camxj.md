@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/20|流浪動物遇到愛|Tim,廖政辉,路嘉欣,宜柏,斯辰,黄荻钧,张祖诚,玉兔|[点击播放](http://www.aixifan.com/v/ac3041961)|[网盘下载](http://xz.twzy.tw)
 |2016/8/14|107集 網路時尚人氣王|来宾|[点击播放](http://www.bilibili.com/video/av5926269/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/13|時尚巨星日LULU 完整版|来宾|[点击播放](http://www.bilibili.com/video/av5801248/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/07|婚礼好好玩|Apple,Ann,Nikki|[点击播放](http://www.bilibili.com/video/av5705934/)|[网盘下载](http://xz.twzy.tw)
