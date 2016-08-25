@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/24|好大胆子！！新生代艺人黑函斗前辈！！|曹西平,张魁,熊海灵,包小松,小优,蔡允洁,曾智希,杜力,庄清就,陈蓝杰,吴俊宏|[点击播放](http://www.tudou.com/programs/view/E1O04NKVFSM/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|史上Key最不准的歌唱比赛？！以歌会友音痴大赛|黄靖伦,翁立友,金智娟,许常德,梁赫群,小Call,林千又,谢忻|[点击播放](http://www.tudou.com/programs/view/332rRRCNtWw/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/22|爸妈大小眼 我曾经不想当你的兄弟姐妹！！|詹子晴,詹少伦,林佩遥,小鼻,博焱,林佩桦,山猪,陈玫瑾,蔡允洁,蔡至翔|[点击播放](http://www.tudou.com/programs/view/ChxWCveb2Qc/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/18|一灶不容二妇？！婆媳告解大会！！|沛小岚,怡君,Paul妈,咪咪,小鱼妈,佩佩,樱文婆婆,陈樱文|[点击播放](http://www.tudou.com/programs/view/8d5gUkbM6L4/)|[网盘下载](http://xz.twzy.tw)
