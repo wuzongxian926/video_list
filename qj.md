@@ -24,6 +24,6 @@
 |私房话老实说|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/sfhlss.md)|[网盘](http://xz.twzy.tw)|青春星主播|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/XZB.md)|[网盘](http://xz.twzy.tw)
 |完全娱乐|三立都会台<br>周一至周五晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/wqyl.md)|[网盘](http://xz.twzy.tw)|东森旅游玩乐志|東森綜合台<br>周六午5点|[播放](https://github.com/wuzongxian926/video_list/blob/master/dsly.md)|[网盘](http://xz.twzy.tw)
 |大陆寻奇|中国电视台<br>每周日晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/dlxq.md)|[网盘](http://xz.twzy.tw)|超级夜总会|三立台湾台<br>每周六晚6:30|[播放](https://github.com/wuzongxian926/video_list/blob/master/CJYZH.MD)|[网盘](http://xz.twzy.tw)
-|JACKYSHOW|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/JACKYSHOW.MD)|[网盘](http://xz.twzy.tw)|
+|JACKYSHOW|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/jackyshow.MD)|[网盘](http://xz.twzy.tw)|
 
 
