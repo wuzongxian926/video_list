@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/25|香辣杏菇五花肉 & 百页凤眼果|温国智|[点击播放](http://www.bilibili.com/video/av6017363/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|塔香白玉肥肠 & 水蜜桃鸡翅|温国智,老王|[点击播放](http://www.bilibili.com/video/av6000569/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|蟹黄人参叶 & 酒香大蒜海瓜子|温国智|[点击播放](http://www.bilibili.com/video/av5975112/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/22|雪菜起士鸡肉卷 & 双椒玉子蛋|温国智|[点击播放](http://www.bilibili.com/video/av5958452/)|[网盘下载](http://xz.twzy.tw)
