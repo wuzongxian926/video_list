@@ -36,7 +36,7 @@
 |20160823|爱玩客|为了吃 老詹哪里都能煮！|詹姆士,张棋惠,朱芯仪,张珮莹,高蕾雅,韦汝,袁艾菲|[点击播放](http://www.aixifan.com/v/ac3047148)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|医师好辣|全身大检查 医师帮你变身S号！|殷琦,李明川,黄小柔|[点击播放](http://www.bilibili.com/video/av5995516/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160823|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160823|请你跟<br>我这样过|小孩不受控是正常 还是生病了？！|小祯,高山峰,IVY,专家:黄瑽宁,洪素卿,刘怡里|[点击播放](http://www.bilibili.com/video/av6001792/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|穿越康熙|他們真的不是馬路三寶？|来宾|[点击播放](http://www.bilibili.com/video/av5983840/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160823|流行新势力|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160822|综艺大热门|2100热门开讲！今晚说清楚讲明白！|沈玉琳,黄沐妍,曹西平,吕文婉,苦苓|[点击播放](http://www.acfun.tv/v/ac3045003)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
