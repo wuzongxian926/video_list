@@ -50,7 +50,7 @@
 |20160824|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|型男大主厨|最强拍档 露营料理大决战：香菇丸柏事+旅活比萨+我爱露营鸡肉总汇+露营就要咖喱面包 & Oh My面+海陆泡面汉堡|林柏宏,方志友,昶宏,妍希,崴程,主厨:詹姆士,吴秉承,阿基师,郭主义|[点击播放](http://www.aixifan.com/v/ac3049378)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160824|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160824|上班这党事|最常见的压力小症状 简单几招可以救你命？|Sam,刘怡里,洪素卿,林萃芬|[点击播放](http://www.bilibili.com/video/av6019387/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|娱乐百分百|百分百LIVE|小猪,恺乐|[点击播放](http://www.aixifan.com/v/ac3052345)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
