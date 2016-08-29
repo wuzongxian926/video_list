@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/24|百分百LIVE|小猪,恺乐|[点击播放](http://www.aixifan.com/v/ac3052345)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|百分百LIVE|恺乐,邱翊橙,戴佩妮|[点击播放](http://www.aixifan.com/v/ac3048398)|[网盘下载](http://xz.twzy.tw)
 |2016/8/22|百分百大对抗|恺乐,威廉,李懿,成语荞,陈若颖,纪卜心,凯莉,拐拐|[点击播放](http://www.aixifan.com/v/ac3045502)|[网盘下载](http://xz.twzy.tw)
 |2016/8/20|粉Meeting|恺乐,威廉,纪言恺,阿喜|[点击播放](http://www.acfun.tv/v/ac3042547)|[网盘下载](http://xz.twzy.tw)
