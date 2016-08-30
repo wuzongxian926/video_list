@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160829|综艺大热门|一个月定生死！！女星减肥实境赛！！|林姿佑,王俐人,IVY,Mei,蔡允洁,圆圆|[点击播放](http://www.aixifan.com/v/ac3061377)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160829|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160829|小明星大跟班|快到让你抓不到！！神骑宝贝来了！！|陈为民,张兆志,孙国豪,马国贤|[点击播放](http://www.tudou.com/programs/view/rE49Rc5wIxk/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160829|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160829|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160829|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
