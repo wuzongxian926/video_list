@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/8/29|一个月定生死！！女星减肥实境赛！！|林姿佑,王俐人,IVY,Mei,蔡允洁,圆圆|[点击播放](http://www.aixifan.com/v/ac3061377)|[网盘](http://xz.twzy.tw)
 |2016/8/24|一则PO文就红了！最新网络红人你能不能认识呢？|黄沐妍,张立东,林彦君|[点击播放](http://www.aixifan.com/v/ac3050084)|[网盘](http://xz.twzy.tw)
 |2016/8/23|什么！你也叫宗宪？新旧菜市场名大集合！|黄姵嘉,赵骏亚,杨晨熙,詹惟中|[点击播放](http://www.aixifan.com/v/ac3047243)|[网盘](http://xz.twzy.tw)
 |2016/8/22|2100热门开讲！今晚说清楚讲明白！|沈玉琳,黄沐妍,曹西平,吕文婉,苦苓|[点击播放](http://www.acfun.tv/v/ac3045003)|[网盘](http://xz.twzy.tw)
