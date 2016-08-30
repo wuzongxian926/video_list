@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/25|超糗！医护人员惨凸槌！|倪雅伦,潘若迪,李祖宁|[点击播放](http://www.bilibili.com/video/av6029490/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|好害羞！说不出口尴尬病！|徐小可,孙国豪,曲艾玲|[点击播放](http://www.bilibili.com/video/av6019714/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|全身大检查 医师帮你变身S号！|殷琦,李明川,黄小柔|[点击播放](http://www.bilibili.com/video/av5995516/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/22|藏在肚子里的秘密要你命！？|郭昱晴,Terry,梁佑南|[点击播放](http://www.bilibili.com/video/av5973702/)|[网盘下载](http://xz.twzy.tw)
