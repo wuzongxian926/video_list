@@ -74,7 +74,7 @@
 |20160824|美食好简单|塔香白玉肥肠 & 水蜜桃鸡翅|温国智,老王|[点击播放](http://www.bilibili.com/video/av6000569/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|国光帮帮忙|玩命快递 再MAN的男人也有娘爆的时候|张克帆,绿茶,柠檬,林建予,杜妍,凯莉,梦梦|[点击播放](http://www.aixifan.com/v/ac3050249)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|爱玩客|超级无敌 想去的希腊双岛|阿达,郭书瑶|[点击播放](http://www.aixifan.com/v/ac3049743)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160824|医师好辣|未更新|来宾|[点击播放](http://www.bilibili.com/video/av6019714/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160824|医师好辣|好害羞！说不出口尴尬病！|徐小可,孙国豪,曲艾玲|[点击播放](http://www.bilibili.com/video/av6019714/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|食尚玩家|2016夏日热斗 谁是扑克王7|莎莎,颜永烈,恺乐,黄镫辉,曾子余,阿松,浩角翔起(浩子,阿翔)|[点击播放](http://www.aixifan.com/v/ac3056855)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160824|穿越康熙|這就是愛台灣啦！|来宾|[点击播放](http://www.bilibili.com/video/av6001536/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
