@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/25|一秒让你心动的销售术！|林美秀,白歆惠,朱芷莹,展荣,展瑞|[点击播放](http://www.bilibili.com/video/av6032216/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|全台疯“抓宝” 人人想当神奇宝贝大师！|黄镫辉,Apple,蓝波,大根妈,艾力克斯,Mei,Tim|[点击播放](http://www.bilibili.com/video/av6014301/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|如何在饭桌上交朋友？|邰智源,大根,谢祖武,王宇婕,陈德烈,李亮瑾|[点击播放](http://www.bilibili.com/video/av5995645/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/22|翻转你人生的那句话！|郭子乾,王彩桦,陈珮骐,GiGi,黄豪平|[点击播放](http://www.bilibili.com/video/av5978270/)|[网盘下载](http://xz.twzy.tw)
