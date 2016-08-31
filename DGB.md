@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/30|台湾旅客别跟风！！来我国家这样玩就错了！！|张芯瑜,夏和熙,小甜甜,李妍憬|[点击播放](http://www.tudou.com/programs/view/suS0t_fF6m0/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|快到让你抓不到！！神骑宝贝来了！！|陈为民,张兆志,孙国豪,马国贤|[点击播放](http://www.tudou.com/programs/view/rE49Rc5wIxk/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|回到结婚那天你还会说我愿意吗？！这次改不掉就离婚！！|马如龙,沛小岚,陈国华,IVY,吴俊谚,小葵,Stanley,依依|[点击播放](http://www.tudou.com/programs/view/Vp85sVZ9_oI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|好大胆子！！新生代艺人黑函斗前辈！！|曹西平,张魁,熊海灵,包小松,小优,蔡允洁,曾智希,杜力,庄清就,陈蓝杰,吴俊宏|[点击播放](http://www.tudou.com/programs/view/E1O04NKVFSM/)|[网盘下载](http://xz.twzy.tw)
