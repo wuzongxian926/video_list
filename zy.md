@@ -4,6 +4,22 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160831|小明星大跟班|谁是全台最会讲？！名嘴生死斗！！|王瑞德,彭华干,黄敬平,谢寒冰,刘骏耀|[点击播放](http://www.tudou.com/programs/view/lqWzSZ3UKLI/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|型男大主厨|拼手艺还是比手气初阶检定考：塔香蘑菇+金勾虾炒蛋 & 什锦炒饼|赵骏亚,黄姵嘉,大恺,安苡爱,主厨:阿基师,詹姆士,吴秉承,郭主义|[点击播放](http://www.aixifan.com/v/ac3067880)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|美食好简单|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|国光帮帮忙|真人版神奇宝贝 今晚让我来收服你！|马力欧,Eason,大飞,大根|[点击播放](http://www.aixifan.com/v/ac3067893)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|爱玩客|日本饱可梦 追饱吃到宝|阿达,吴心缇|[点击播放](http://www.aixifan.com/v/ac3067903)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160831|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160830|综艺大热门|男人最帅的瞬间！运动天才终极对决！|玛莉亚,蔡允洁,成语荞,安妮|[点击播放](http://www.aixifan.com/v/ac3063911)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160830|小明星大跟班|台湾旅客别跟风！！来我国家这样玩就错了！！|张芯瑜,夏和熙,小甜甜,李妍憬|[点击播放](http://www.tudou.com/programs/view/suS0t_fF6m0/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160830|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

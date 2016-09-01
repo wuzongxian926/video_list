@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/31|谁是全台最会讲？！名嘴生死斗！！|王瑞德,彭华干,黄敬平,谢寒冰,刘骏耀|[点击播放](http://www.tudou.com/programs/view/lqWzSZ3UKLI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|台湾旅客别跟风！！来我国家这样玩就错了！！|张芯瑜,夏和熙,小甜甜,李妍憬|[点击播放](http://www.tudou.com/programs/view/suS0t_fF6m0/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|快到让你抓不到！！神骑宝贝来了！！|陈为民,张兆志,孙国豪,马国贤|[点击播放](http://www.tudou.com/programs/view/rE49Rc5wIxk/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|回到结婚那天你还会说我愿意吗？！这次改不掉就离婚！！|马如龙,沛小岚,陈国华,IVY,吴俊谚,小葵,Stanley,依依|[点击播放](http://www.tudou.com/programs/view/Vp85sVZ9_oI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
