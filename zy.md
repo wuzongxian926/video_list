@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160901|综艺大热门|拜托！我也很潮der好吗！老人家金头脑！|任爸,曹西平,邰智源|[点击播放](http://www.aixifan.com/v/ac3070947)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160901|小明星大跟班|他们都比艺人还会当老板？！另类创业家来了！！|包伟铭,GiGi,王少伟|[点击播放](http://www.tudou.com/programs/view/YWlvonhyupw/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160901|小明星大跟班|他们都比艺人还会当老板？！另类创业家来了！|包伟铭,GiGi,王少伟|[点击播放](http://www.tudou.com/programs/view/YWlvonhyupw/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160901|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160901|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160901|型男大主厨|严选海味汤品-南方澳海鲜：南姜椰奶龙虾汤 & 台湾TOP1南方澳海味大赏：盐酥虾+柠檬熟成马头鱼+焗烤竹策鱼丸+丰收扬帆冲赤|朱海君,NONO,主厨:郭主义,阿基师,詹姆士|[点击播放](http://www.aixifan.com/v/ac3072208)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
