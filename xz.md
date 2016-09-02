@@ -49,13 +49,13 @@
 |8.29|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
 |8.29|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |8.29|穿越康熙|[]()<br>密码:|
-|8.28|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|8.28|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
-|8.28|没玩没了|[http://pan.baidu.com/s/1gf0TJcJ](http://pan.baidu.com/s/1gf0TJcJ)<br>密码:lon8|GOGO捷运|[]()<br>密码:
+|8.28|名模出任务|[http://pan.baidu.com/s/1i5yNN7J](http://pan.baidu.com/s/1i5yNN7J)<br>密码:s4so|超爱美小姐|[]()<br>密码:
+|8.28|综艺大集合|[http://pan.baidu.com/s/1kVzzGZP](http://pan.baidu.com/s/1kVzzGZP)<br>密码:5gv7|台湾名人堂|[]()<br>密码:
+|8.28|没玩没了|[http://pan.baidu.com/s/1gf0TJcJ](http://pan.baidu.com/s/1gf0TJcJ)<br>密码:lon8|GOGO捷运|[http://pan.baidu.com/s/1o84dqAY](http://pan.baidu.com/s/1o84dqAY)<br>密码:z357
 |8.28|GoGoTaiwan|[]()<br>密码:|后宫生还战|[]()<br>密码:
 |8.27|综艺玩很大|[http://pan.baidu.com/s/1nu5QKZZ](http://pan.baidu.com/s/1nu5QKZZ)<br>密码:b1kj|天才冲冲冲|[http://pan.baidu.com/s/1bNOp6A](http://pan.baidu.com/s/1bNOp6A)<br>密码:f68p
 |8.27|娱乐百分百|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|8.27|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
+|8.27|舞力全开|[]()<br>密码:|全民一起来|[http://pan.baidu.com/s/1c2yXZLA](http://pan.baidu.com/s/1c2yXZLA)<br>密码:x8ou
 |8.26|综艺大热门|[http://pan.baidu.com/s/1nuMLSox](http://pan.baidu.com/s/1nuMLSox)<br>密码:uflj
 |8.26|小燕之夜|[http://pan.baidu.com/s/1hrKon1i](http://pan.baidu.com/s/1hrKon1i)<br>密码:lc2v|穿越康熙|[http://pan.baidu.com/s/1nvNciNn](http://pan.baidu.com/s/1nvNciNn)<br>密码:6kcw
 |8.26|大学生了没|[http://pan.baidu.com/s/1pLq4ahX](http://pan.baidu.com/s/1pLq4ahX)<br>密码:3m9j|型男大主厨|[]()<br>密码:
@@ -69,7 +69,7 @@
 |8.25|娱乐百分百|[http://pan.baidu.com/s/1qYxT0uC](http://pan.baidu.com/s/1qYxT0uC)<br>密码:yjei|美凤有约|[http://pan.baidu.com/s/1pLRbKeB](http://pan.baidu.com/s/1pLRbKeB)<br>密码:w5dz
 |8.25|美食好简单|[http://pan.baidu.com/s/1bp2xDXP](http://pan.baidu.com/s/1bp2xDXP)<br>密码:lvnf|国光帮帮忙|[]()<br>密码:
 |8.25|爱玩客|[http://pan.baidu.com/s/1bp83t9d](http://pan.baidu.com/s/1bp83t9d)<br>密码:vtxj|医师好辣|[http://pan.baidu.com/s/1c1RhQpU](http://pan.baidu.com/s/1c1RhQpU)<br>密码:xw50
-|8.25|食尚玩家|[http://pan.baidu.com/s/1skLrI8H](http://pan.baidu.com/s/1skLrI8H)<br>密码:5yvh|请你跟我这样过|[]()<br>密码:
+|8.25|食尚玩家|[http://pan.baidu.com/s/1skLrI8H](http://pan.baidu.com/s/1skLrI8H)<br>密码:5yvh|请你跟我这样过|[http://pan.baidu.com/s/1mhR7GYO](http://pan.baidu.com/s/1mhR7GYO)<br>密码:i23j
 |8.25|穿越康熙|[http://pan.baidu.com/s/1slGisPJ](http://pan.baidu.com/s/1slGisPJ)<br>密码:cfyx|
 |8.24|综艺大热门|[http://pan.baidu.com/s/1jHWvfoy](http://pan.baidu.com/s/1jHWvfoy)<br>密码:0940|小明星大跟班|[http://pan.baidu.com/s/1dF2Zqd7](http://pan.baidu.com/s/1dF2Zqd7)<br>密码:p5zz
 |8.24|小燕之夜|[http://pan.baidu.com/s/1eR92OdO](http://pan.baidu.com/s/1eR92OdO)<br>密码:xlny|大学生了没|[http://pan.baidu.com/s/1miDACcC](http://pan.baidu.com/s/1miDACcC)<br>密码:j3ac
@@ -92,7 +92,7 @@
 |8.22|综艺大热门|[http://pan.baidu.com/s/1qXDRRI0](http://pan.baidu.com/s/1qXDRRI0)<br>密码:smer|小明星大跟班|[http://pan.baidu.com/s/1nuKJ7nz](http://pan.baidu.com/s/1nuKJ7nz)<br>密码:b7u6
 |8.22|小燕之夜|[http://pan.baidu.com/s/1o7MJ1Su](http://pan.baidu.com/s/1o7MJ1Su)<br>密码:ku0j|大学生了没|[http://pan.baidu.com/s/1miyHka0](http://pan.baidu.com/s/1miyHka0)<br>密码:veh3
 |8.22|型男大主厨|[http://pan.baidu.com/s/1eR6eK4U](http://pan.baidu.com/s/1eR6eK4U)<br>密码:1dvv|女人我最大|[http://pan.baidu.com/s/1i5sbJtr](http://pan.baidu.com/s/1i5sbJtr)<br>密码:otje
-|8.22|上班这党事|[http://pan.baidu.com/s/1jIfOyTw](http://pan.baidu.com/s/1jIfOyTw)<br>密码:8cry|2分之一強|[]()<br>密码:
+|8.22|上班这党事|[http://pan.baidu.com/s/1jIfOyTw](http://pan.baidu.com/s/1jIfOyTw)<br>密码:8cry|2分之一強|[http://pan.baidu.com/s/1hst0lVI](http://pan.baidu.com/s/1hst0lVI)<br>密码:gp6s
 |8.22|娱乐百分百|[http://pan.baidu.com/s/1pLAgwVD](http://pan.baidu.com/s/1pLAgwVD)<br>密码:wdg4|美凤有约|[]()<br>密码:
 |8.22|美食好简单|[http://pan.baidu.com/s/1pLCOoaR](http://pan.baidu.com/s/1pLCOoaR)<br>密码:m23a|国光帮帮忙|[http://pan.baidu.com/s/1pLVfh5x](http://pan.baidu.com/s/1pLVfh5x)<br>密码:z415
 |8.22|爱玩客|[http://pan.baidu.com/s/1pLGmbVH](http://pan.baidu.com/s/1pLGmbVH)<br>密码:0z1x|医师好辣|[http://pan.baidu.com/s/1hrRFtQk](http://pan.baidu.com/s/1hrRFtQk)<br>密码:qob7
