@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/31|百分百LIVE|恺乐,威廉,袁艾菲|[点击播放](http://www.aixifan.com/v/ac3074114)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|百分百大对抗 天气女孩PK晦气女孩|恺乐,毛弟,天气女孩(Ria,Hijon,Yumi,Mia,NueNue),晦气女孩(嘻小瓜,林进,胖虎)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|新声耳Mazing|恺乐,毛弟,林建予,罗小白,关诗敏,吴是闳|[点击播放](http://www.aixifan.com/v/ac3053780)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|百分百LIVE|小猪,恺乐|[点击播放](http://www.aixifan.com/v/ac3052345)|[网盘下载](http://xz.twzy.tw)

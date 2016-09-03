@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/9/02|这些上班族！不当艺人太可惜了！|展瑞,展荣,纳豆,朱芷莹,禹安|[点击播放](http://www.aixifan.com/v/ac3074393)|[网盘](http://xz.twzy.tw)
 |2016/9/01|拜托！我也很潮der好吗！老人家金头脑！|任爸,曹西平,邰智源|[点击播放](http://www.aixifan.com/v/ac3070947)|[网盘](http://xz.twzy.tw)
 |2016/8/30|男人最帅的瞬间！运动天才终极对决！|玛莉亚,蔡允洁,成语荞,安妮|[点击播放](http://www.aixifan.com/v/ac3063911)|[网盘](http://xz.twzy.tw)
 |2016/8/29|一个月定生死！！女星减肥实境赛！！|林姿佑,王俐人,IVY,Mei,蔡允洁,圆圆|[点击播放](http://www.aixifan.com/v/ac3061377)|[网盘](http://xz.twzy.tw)

@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/02|手制金桔酱 & 金桔酱烧鸡|微微蔡|[点击播放](http://www.bilibili.com/video/av6134389/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|水蜜桃虾三明治 & 葱香皮蛋红苋菜|温国智|[点击播放](http://www.bilibili.com/video/av6122036/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|海苔咸酥鱼 & 酸辣魩鱼绿豆粉|温国智,老王|[点击播放](http://www.bilibili.com/video/av6133441/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|秒杀蒸饺 & 凉拌黑木耳|微微蔡|[点击播放](http://www.bilibili.com/video/av6029204/)|[网盘下载](http://xz.twzy.tw)
