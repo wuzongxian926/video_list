@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/28|111集 旅韓必敗攻略(下)|来宾|[点击播放](http://www.bilibili.com/video/av6174561/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/27|专家让你快乐塑|小甜甜,Peter,李明川,李汉城,来花,鸿杰|[点击播放](http://www.bilibili.com/video/av6162883/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/21|流浪动物遇到爱|Tim,廖政辉,路嘉欣,宜柏,斯辰,黄荻钧,张祖诚,玉兔|[点击播放](http://www.bilibili.com/video/av6019561/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/20|流浪動物遇到愛|Tim,廖政辉,路嘉欣,宜柏,斯辰,黄荻钧,张祖诚,玉兔|[点击播放](http://www.aixifan.com/v/ac3041961)|[网盘下载](http://xz.twzy.tw)

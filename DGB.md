@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/05|不然换你订订看！！艺人推荐便当排位战！！|邰智源,郭彦均,陈艾熙,沈玉琳,赵正平|[点击播放](http://www.tudou.com/programs/view/U5WX2e4zGNE/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|他们都比艺人还会当老板？！另类创业家来了！！|包伟铭,GiGi,王少伟|[点击播放](http://www.tudou.com/programs/view/YWlvonhyupw/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|谁是全台最会讲？！名嘴生死斗！！|王瑞德,彭华干,黄敬平,谢寒冰,刘骏耀|[点击播放](http://www.tudou.com/programs/view/lqWzSZ3UKLI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|台湾旅客别跟风！！来我国家这样玩就错了！！|张芯瑜,夏和熙,小甜甜,李妍憬|[点击播放](http://www.tudou.com/programs/view/suS0t_fF6m0/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
