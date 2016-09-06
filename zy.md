@@ -134,7 +134,7 @@
 |20160826|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160826|女人我最大|十二星座谁是暧昧高手？|唐立淇,韦汝,洪棠,小优,张兆志,Eason,柯杰夫,曹育豪,林辉瑝,黄旭|[点击播放](http://www.bilibili.com/video/av6045774/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160826|上班这党事|他们这些方面都很合 为何还是会分手收场？！|沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6045762/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160826|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160826|2分之一強|2分之一强游戏王 夏日特别企划|连静雯(主持),舒子晨,小娴,潘若迪,梁凯莉|[点击播放](http://www.bilibili.com/video/av6184335/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160826|娱乐百分百|百分百大对抗 天气女孩PK晦气女孩|恺乐,毛弟,天气女孩(Ria,Hijon,Yumi,Mia,NueNue),晦气女孩(嘻小瓜,林进,胖虎)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160826|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160826|美食好简单|秒杀蒸饺 & 凉拌黑木耳|微微蔡|[点击播放](http://www.bilibili.com/video/av6029204/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
