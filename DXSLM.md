@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/01|就算有一百双鞋！还是会想穿的终极美鞋！！|Kimiko,李佑群|[点击播放](http://www.bilibili.com/video/av6134100/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|红花与绿叶的对决！宅男的帅哥好友！！|彦臻,贺珑,六百五,High咖|[点击播放](http://www.bilibili.com/video/av6134097/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/29|今天换我们帅一发！超认真谐星舞蹈大赛！！|恺乐,Nike(舞蹈老师)|[点击播放](http://www.bilibili.com/video/av6163322/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|阳光沙滩好风光！今夏就去离岛观光！|李奇嶽(旅游达人),米儿(美食记者)|[点击播放](http://www.bilibili.com/video/av6045831/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|声音控女生联谊会！这男声我可以！！|来宾|[点击播放](http://www.bilibili.com/video/av6029527/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|好寂寞好孤单！神啊请给我另一半！！|海芬|[点击播放](http://www.bilibili.com/video/av6019682/)|[网盘下载](http://xz.twzy.tw)

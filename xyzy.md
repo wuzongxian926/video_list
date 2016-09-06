@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/8/31|Oh My God 我的另一半是健身狂！|小娴,何守正,罗美玲,Terry|[点击播放](http://www.bilibili.com/video/av6132727/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/29|是神搭档？还是猪队友！|Kid,夏和熙,颜永烈,恺乐|[点击播放](http://www.bilibili.com/video/av6163325/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|当你的男人/女人爱上了别人|曲家瑞,张兆志,苦苓,赖芳玉|[点击播放](http://www.bilibili.com/video/av6045834/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|一秒让你心动的销售术！|林美秀,白歆惠,朱芷莹,展荣,展瑞|[点击播放](http://www.bilibili.com/video/av6032216/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|全台疯“抓宝” 人人想当神奇宝贝大师！|黄镫辉,Apple,蓝波,大根妈,艾力克斯,Mei,Tim|[点击播放](http://www.bilibili.com/video/av6014301/)|[网盘下载](http://xz.twzy.tw)

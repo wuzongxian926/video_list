@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/01|怒！医师一句话惹恼病人？！|佩佩,哈孝远,郑仲茵|[点击播放](http://www.bilibili.com/video/av6133990/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|身体酸痛暗藏健康危机？|李佳豫,潘若迪,LuLu|[点击播放](http://www.bilibili.com/video/av6134018/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/29|抢救黄金10秒 生死一瞬间！|陈德烈,王宇婕,谢祖武|[点击播放](http://www.bilibili.com/video/av6167493/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|超糗！医护人员惨凸槌！|倪雅伦,潘若迪,李祖宁|[点击播放](http://www.bilibili.com/video/av6029490/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|好害羞！说不出口尴尬病！|徐小可,孙国豪,曲艾玲|[点击播放](http://www.bilibili.com/video/av6019714/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|全身大检查 医师帮你变身S号！|殷琦,李明川,黄小柔|[点击播放](http://www.bilibili.com/video/av5995516/)|[网盘下载](http://xz.twzy.tw)
