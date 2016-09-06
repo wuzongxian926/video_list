@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/29|奢华补给 给你美丽好气色|兵家绮,夏宇童,谢宜芳(营养师)|[点击播放](http://www.bilibili.com/video/av6157822/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|美国抗菌木钻板 芒果炒鸡球|何嘉文,郭泰王|[点击播放](http://www.bilibili.com/video/av6015314/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|牙疼不是病 疼起来真要命|黄小柔,王灿,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av6029082/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|夏季养颜好料理 银耳雪百松菜羹|刘怡里,雷议宗|[点击播放](http://www.bilibili.com/video/av5987507/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

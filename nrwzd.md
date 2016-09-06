@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/29|大脚女孩别伤心 今夏就要抢救你！|佑群,倪雅伦,小筠,侬侬,邱珮淇,Christine|[点击播放](http://www.bilibili.com/video/av6167004/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|十二星座谁是暧昧高手？|唐立淇,韦汝,洪棠,小优,张兆志,Eason,柯杰夫,曹育豪,林辉瑝,黄旭|[点击播放](http://www.bilibili.com/video/av6045774/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|衣橱必备基本单品 这样穿就能变好迷人？|佑群,Kevin,李懿,亚美将,小Call,夏宇童,曾智希,潘映竹|[点击播放](http://www.bilibili.com/video/av6036908/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|超狂发型！大家都要一起丸！|吴依霖,汪诗敏,纪卜心,可青,邱珮淇,温翠苹,Issa|[点击播放](http://www.bilibili.com/video/av6026502/)|[网盘下载](http://xz.twzy.tw)
