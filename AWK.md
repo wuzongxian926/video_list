@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/01|暑假玩不够 开学前最后一波冲垦丁|吴凤,安妮|[点击播放](http://www.aixifan.com/v/ac3074381)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|日本饱可梦 追饱吃到宝|阿达,吴心缇|[点击播放](http://www.aixifan.com/v/ac3067903)|[网盘下载](http://xz.twzy.tw)
+|2016/8/30|穿梭古今 吃遍澳门老滋味|詹姆士,茵芙|[点击播放](http://www.aixifan.com/v/ac3076872)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|四国五秘境 爱玩客主持棒抢夺战|小钟,芮轩,宇珊|[点击播放](http://www.aixifan.com/v/ac3078793)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|过五关学厨艺 天菜主厨游大溪|吴凤,Kenna|[点击播放](http://www.aixifan.com/v/ac3052365)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|超级无敌 想去的希腊双岛|阿达,郭书瑶|[点击播放](http://www.aixifan.com/v/ac3049743)|[网盘下载](http://xz.twzy.tw)
