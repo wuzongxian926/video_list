@@ -4,12 +4,18 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
+|20160903|综艺玩很大|台湾 台南|吴宗宪,Kid,辛龙,Yumi,HiJon,张立东,NueNue,Ria,无尊|[点击播放](http://www.aixifan.com/v/ac3079182)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160903|天才冲冲冲|名模踢馆赛：你是Word演 & Where Tempo & 联想Tempo|陈樱文,曹雅雯,小钟,许孟哲,谢忻,阿诺,大恺,李懿,成语荞,陈思璇,曾智希,李沛旭|[点击播放](http://www.aixifan.com/v/ac3082501)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160903|超爱美小姐|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160903|舞力全开|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160903|全民一起来|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160903|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160902|综艺大热门|这些上班族！不当艺人太可惜了！|展瑞,展荣,纳豆,朱芷莹,禹安|[点击播放](http://www.aixifan.com/v/ac3074393)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160902|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160902|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160902|小燕之夜|哪来老师这么帅！|郭彦均|[点击播放](http://www.bilibili.com/video/av6163261/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160902|大学生了没|每餐之间的小确幸！各国解馋零食来啰！|翁滋蔓,凯皓,Erica(网站副执行长),伊登(网购达人)|[点击播放](http://www.bilibili.com/video/av6163314/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160902|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160902|女人我最大|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160902|上班这党事|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160902|上班这党事|朋友说另一半做这些事 该怎么面对和应对呢？|沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6167748/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160902|2分之一強|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160902|娱乐百分百|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160902|美凤有约|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)

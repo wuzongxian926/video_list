@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/03|名模踢馆赛：你是Word演 & Where Tempo & 联想Tempo|陈樱文,曹雅雯,小钟,许孟哲,谢忻,阿诺,大恺,李懿,成语荞,陈思璇,曾智希,李沛旭|[点击播放](http://www.aixifan.com/v/ac3082501)|[网盘下载](http://xz.twzy.tw)
 |2016/8/27|跳跳Tempo & 联想Tempo & EAR传耳ABC|郭婷筠,博焱,周宜霈,林若亚,浩子,钟雅如,楼心潼,姚采颖,侯昌明,阿翔|[点击播放](http://www.aixifan.com/v/ac3069519)|[网盘下载](http://xz.twzy.tw)
 |2016/8/20|韵脚Tempo & 接龙Tempo & Where Tempo|林辉瑝,赵孟姿,Eason,廖家仪,王仁甫,黄安琪,曾智希,杨升达,杜诗梅,洪都拉斯|[点击播放](http://www.acfun.tv/v/ac3041178)|[网盘下载](http://xz.twzy.tw)
 |2016/8/13|跳跳Tempo & 你是Word演 & EAR传耳ABC|关诗敏,林彦君,徐小可,NONO,林炜,利晴天,班杰,陈樱文,Apple,伊正|[点击播放](http://www.acfun.tv/v/ac3021650)|[网盘下载](http://xz.twzy.tw)
