@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/01|男藝人夢幻女神見面會|来宾|[点击播放](http://www.bilibili.com/video/av6123529/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|藝人不能踩的大地雷|来宾|[点击播放](http://www.bilibili.com/video/av6132701/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/30|這才是蕭亞軒！|来宾|[点击播放](http://www.bilibili.com/video/av6143946/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|歲月沒在他臉上留下痕跡|来宾|[点击播放](http://www.bilibili.com/video/av6163128/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|超恐怖明星靈異經驗全記錄|来宾|[点击播放](http://www.bilibili.com/video/av6033490/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|康熙KTV明星现形记|来宾|[点击播放](http://www.bilibili.com/video/av6029484/)|[网盘下载](http://xz.twzy.tw)

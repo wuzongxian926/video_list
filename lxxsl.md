@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/30|此生必访的明信片美景|李佳豫,大久保麻梨子,李佑群|[点击播放](http://www.bilibili.com/video/av6144301/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/23|最潮！今夏必玩体验之旅|徐小可,夏宇童,陈凯文|[点击播放](http://www.bilibili.com/video/av6113853/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/16|日剧迷启航 直击海女现身|冯媛甄,郭亚棠,郭人荣|[点击播放](http://www.bilibili.com/video/av5892355/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/09|轻松玩出炎夏水嫩肌|何妤玟,刘雨柔,濑上刚|[点击播放](http://www.bilibili.com/video/av5770763/)|[网盘下载](http://xz.twzy.tw)

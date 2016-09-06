@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/01|对他好工作就顺遂 秘书界不可告人的事？|余皓然,沈玉琳,卢燕俐,胡孝诚|[点击播放](http://www.bilibili.com/video/av6134021/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|连续假期就要放轻松 吃喝玩乐怎样最划算？|温士凯,瞿光复,陶礼君,Sam,韦汝|[点击播放](http://www.bilibili.com/video/av6134096/)|[网盘下载](http://xz.twzy.tw)
+|2016/8/30|超夯的团购铜板美食 吃到爽又能省荷包？！|Apple,韦汝,Sam,舒子晨|[点击播放](http://www.bilibili.com/video/av6148024/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/26|他们这些方面都很合 为何还是会分手收场？！|沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6045762/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|餐饮界的俊美店员 真的就会比较吃香？！|余皓然,刘雨柔,杨皓如|[点击播放](http://www.bilibili.com/video/av6029489/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/24|最常见的压力小症状 简单几招可以救你命？|Sam,刘怡里,洪素卿,林萃芬|[点击播放](http://www.bilibili.com/video/av6019387/)|[网盘下载](http://xz.twzy.tw)
