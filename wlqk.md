@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/27|【第202集】明星舞王舞后爭霸賽 & 藝人獎金挑戰賽|張艾亞|[点击播放](http://www.bilibili.com/video/av6157806/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/20|【第202集】明星舞王舞后爭霸賽 & 台灣職業摩登舞冠軍示範表演!|陳建伸 陳妍均|[点击播放](http://www.bilibili.com/video/av6001850/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/13|【第201集】明星舞王舞后爭霸賽 !|来宾|[点击播放](http://www.bilibili.com/video/av5878576/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/06|飛躍200金舞獎頒獎典禮 !|来宾|[点击播放](http://www.bilibili.com/video/av5759957/)|[网盘下载](http://xz.twzy.tw)

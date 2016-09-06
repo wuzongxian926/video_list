@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/01|報告班長！同學會集合！|来宾|[点击播放](http://www.bilibili.com/video/av6137704/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|Oh My God 我的另一半是健身狂！|小娴,何守正,罗美玲,Terry|[点击播放](http://www.bilibili.com/video/av6132727/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|当老婆不在家的时候？|艾力克斯,李易,黄文星,阿布|[点击播放](http://www.bilibili.com/video/av6144229/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|是神搭档？还是猪队友！|Kid,夏和熙,颜永烈,恺乐|[点击播放](http://www.bilibili.com/video/av6163325/)|[网盘下载](http://xz.twzy.tw)
