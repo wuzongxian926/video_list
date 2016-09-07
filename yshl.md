@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/05|女人最容易忽视的健康死角！|解婕翎,翊萱,甄莉|[点击播放](http://www.bilibili.com/video/av6185183/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|怒！医师一句话惹恼病人？！|佩佩,哈孝远,郑仲茵|[点击播放](http://www.bilibili.com/video/av6133990/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|身体酸痛暗藏健康危机？|李佳豫,潘若迪,LuLu|[点击播放](http://www.bilibili.com/video/av6134018/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|惊！老化征兆竟是重病警讯？！|王以路,王俐人,Vicky|[点击播放](http://www.bilibili.com/video/av6147798/)|[网盘下载](http://xz.twzy.tw)
