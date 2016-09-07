@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/05|都是假的！消除你的时尚业障！|陈孙华,Vincent,洪棠,筱蕾,佩洁,臧迎颖,曾智希,邱珮淇|[点击播放](http://www.bilibili.com/video/av6185234/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|女儿就是前世情人！爹就是偏心怎么样！|唐立淇,王仁甫,陈薇,李易,廖家仪,甄莉,亦帆,吴亦伟|[点击播放](http://www.bilibili.com/video/av6185299/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/01|一瓶就让你启动洪荒之力 美妆大赏得奖篇|Kevin,柳燕,梁佑南,GiGi,林立雯,筱蕾,芳瑜,施羿丞|[点击播放](http://www.bilibili.com/video/av6194192/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|小资女有了这一样 就能变身华丽上班族|佑群,Vincent,林辉瑝,陈茂齐,亚美将,芳瑜,邱珮淇,李怡贞,佩洁,Christine|[点击播放](http://www.bilibili.com/video/av6191797/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|20 30 40不同世代 只要这一招都能快速出门！|吴依霖,Kevin,潘慧如,梁佑南,薇琪,怡贞,Hannah,臧迎颖|[点击播放](http://www.bilibili.com/video/av6148059/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|大脚女孩别伤心 今夏就要抢救你！|佑群,倪雅伦,小筠,侬侬,邱珮淇,Christine|[点击播放](http://www.bilibili.com/video/av6167004/)|[网盘下载](http://xz.twzy.tw)

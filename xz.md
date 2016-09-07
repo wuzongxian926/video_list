@@ -25,7 +25,7 @@
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
 |9.6|综艺大热门|[http://pan.baidu.com/s/1gfPW48r](http://pan.baidu.com/s/1gfPW48r)<br>密码:ddjs|小明星大跟班|[http://pan.baidu.com/s/1qY2D81u](http://pan.baidu.com/s/1qY2D81u)<br>密码:ysq1
 |9.6|小燕之夜|[]()<br>密码:|大学生了没|[]()<br>密码:
-|9.6|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
+|9.6|型男大主厨|[http://pan.baidu.com/s/1kV4PAkf](http://pan.baidu.com/s/1kV4PAkf)<br>密码:0tp5|女人我最大|[]()<br>密码:
 |9.6|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |9.6|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |9.6|美食好简单|[]()<br>密码:|国光帮帮忙|[http://pan.baidu.com/s/1jHKQ19O](http://pan.baidu.com/s/1jHKQ19O)<br>密码:tsft
@@ -56,7 +56,7 @@
 |9.2|美凤有约|[]()<br>密码:|美食好简单|[http://pan.baidu.com/s/1pLhGFrX](http://pan.baidu.com/s/1pLhGFrX)<br>密码:6mg1
 |9.1|综艺大热门|[http://pan.baidu.com/s/1jH3Vnq2](http://pan.baidu.com/s/1jH3Vnq2)<br>密码:spq9|小明星大跟班|[http://pan.baidu.com/s/1o7ZBh4Q](http://pan.baidu.com/s/1o7ZBh4Q)<br>密码:33xq
 |9.1|小燕之夜|[http://pan.baidu.com/s/1jImAJ7g](http://pan.baidu.com/s/1jImAJ7g)<br>密码:c5jk|大学生了没|[http://pan.baidu.com/s/1bp7hBR5](http://pan.baidu.com/s/1bp7hBR5)<br>密码:klo5
-|9.1|型男大主厨|[http://pan.baidu.com/s/1jIg4QRc](http://pan.baidu.com/s/1jIg4QRc)<br>密码:w3we|女人我最大|[]()<br>密码:
+|9.1|型男大主厨|[http://pan.baidu.com/s/1jIg4QRc](http://pan.baidu.com/s/1jIg4QRc)<br>密码:w3we|女人我最大|[http://pan.baidu.com/s/1eSyomPk](http://pan.baidu.com/s/1eSyomPk)<br>密码:zfta
 |9.1|上班这党事|[http://pan.baidu.com/s/1bHIKJO](http://pan.baidu.com/s/1bHIKJO)<br>密码:qhv7|2分之一強|[]()<br>密码:
 |9.1|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |9.1|美食好简单|[http://pan.baidu.com/s/1i4ZLuSH](http://pan.baidu.com/s/1i4ZLuSH)<br>密码:s8p9|国光帮帮忙|[]()<br>密码:
