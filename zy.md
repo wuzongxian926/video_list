@@ -5,7 +5,7 @@
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
 |20160905|综艺大热门|夫妻默契实测！婚结愈久 愈不懂他在想什么？|阿Ben,王中平,Terry,Paul,徐小可,余皓然,罗美玲,咪咪,吕文婉|[点击播放](http://www.aixifan.com/v/ac3082625)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20160905|小明星大跟班|不然换你订订看！！艺人推荐便当排位战！！|邰智源,郭彦均,陈艾熙,沈玉琳,赵正平|[点击播放](http://www.tudou.com/programs/view/U5WX2e4zGNE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160905|小明星大跟班|不然换你订订看！艺人推荐便当排位战！！|邰智源,郭彦均,陈艾熙,沈玉琳,赵正平|[点击播放](http://www.tudou.com/programs/view/U5WX2e4zGNE/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160905|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160905|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160905|型男大主厨|最强拍档还差两胜上邮轮：甘梅香猪 & 城詹差一票就上邮轮：鱼香肉丝|王以路,小祯,主厨:詹姆士,吴秉承|[点击播放](http://www.aixifan.com/v/ac3083768)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
