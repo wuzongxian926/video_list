@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/8/28|經濟部長_李世光|来宾|[点击播放](http://www.bilibili.com/video/av6192551/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/21|民歌之父_胡德夫|来宾|[点击播放](http://www.bilibili.com/video/av6115494/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/07|資深藝人_侯麗芳|侯麗芳|[点击播放](http://www.bilibili.com/video/av5836442/)|[网盘下载](http://xz.twzy.tw)
 |2016/7/31|搖滾教母_金智娟|金智娟|[点击播放](http://www.bilibili.com/video/av5708347/)|[网盘下载](http://xz.twzy.tw)
