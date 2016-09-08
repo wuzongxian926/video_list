@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/05|消耗热量无极限！大学生健身教师开课啦！！|TOY|[点击播放](http://www.bilibili.com/video/av6196652/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|每餐之间的小确幸！各国解馋零食来啰！|翁滋蔓,凯皓,Erica(网站副执行长),伊登(网购达人)|[点击播放](http://www.bilibili.com/video/av6163314/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|就算有一百双鞋！还是会想穿的终极美鞋！！|Kimiko,李佑群|[点击播放](http://www.bilibili.com/video/av6134100/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|红花与绿叶的对决！宅男的帅哥好友！！|彦臻,贺珑,六百五,High咖|[点击播放](http://www.bilibili.com/video/av6134097/)|[网盘下载](http://xz.twzy.tw)

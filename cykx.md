@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/06|回味無窮的國外旅行|来宾|[点击播放](http://www.bilibili.com/video/av6196603/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|他們出道前竟做過這些工作PartII？！|来宾|[点击播放](http://www.bilibili.com/video/av6186352/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|他們都是這樣長大的|来宾|[点击播放](http://www.bilibili.com/video/av6136103/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|男藝人夢幻女神見面會|来宾|[点击播放](http://www.bilibili.com/video/av6123529/)|[网盘下载](http://xz.twzy.tw)

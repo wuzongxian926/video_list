@@ -5,6 +5,9 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/07|美鳳上菜 醬燒鱈魚排、養生御膳堅果鬆餅|郭泰王、Sam|[点击播放](http://www.bilibili.com/video/av6198215/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|台灣之光 全身都是寶 香蕉養身術|汪建民、馬力歐、余朱青|[点击播放](http://www.bilibili.com/video/av6195949/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/05|美鳳上菜 甜蜜蜜咕咾肉、高纖牛肉排|李洛陽、蔡萬利|[点击播放](http://www.bilibili.com/video/av6195955/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|皮肤弹润有法宝 胶原蛋白是关键|罗美玲,Terry,Sam(美容专家)|[点击播放](http://www.bilibili.com/video/av6144297/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|奢华补给 给你美丽好气色|兵家绮,夏宇童,谢宜芳(营养师)|[点击播放](http://www.bilibili.com/video/av6157822/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/8/25|美国抗菌木钻板 芒果炒鸡球|何嘉文,郭泰王|[点击播放](http://www.bilibili.com/video/av6015314/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
