@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/07|隐藏的谐星！他们真的会模仿吗？|丁晓雯,阿虎,李懿,香蕉,蔡佳麟,卡古,小纶,冠子,欉震天,辛龙,简淑萍,何美,陈虹竹,大飞,安格斯|[点击播放](http://www.tudou.com/programs/view/nWL5zsfiaKQ/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|选前得意选后失意？！他们不靠唱歌闯出一片天！！|卢学叡,艾成,黄靖伦,江明娟,林道远,边权,蔡忠颖|[点击播放](http://www.tudou.com/programs/view/UMBfkV1YXDI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|不然换你订订看！！艺人推荐便当排位战！！|邰智源,郭彦均,陈艾熙,沈玉琳,赵正平|[点击播放](http://www.tudou.com/programs/view/U5WX2e4zGNE/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|他们都比艺人还会当老板？！另类创业家来了！！|包伟铭,GiGi,王少伟|[点击播放](http://www.tudou.com/programs/view/YWlvonhyupw/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
