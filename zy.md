@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20160907|小明星大跟班|隐藏的谐星！他们真的会模仿吗？|丁晓雯,阿虎,李懿,香蕉,蔡佳麟,卡古,小纶,冠子,欉震天,辛龙,简淑萍,何美,陈虹竹,大飞,安格斯|[点击播放](http://www.tudou.com/programs/view/nWL5zsfiaKQ/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20160907|小明星大跟班|隐藏的谐星！他们真的会模仿吗？|丁晓雯,阿虎,李懿,香蕉,蔡佳麟,卡古,小纶,冠子,欉震天,辛龙,简淑萍,何美,陈虹竹,大飞,安格斯,|[点击播放](http://www.tudou.com/programs/view/nWL5zsfiaKQ/)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160907|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160907|大学生了没|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20160907|型男大主厨|是試吃還是誤導？超誇張試吃員料理賽|来宾|[点击播放](http://www.aixifan.com/v/ac3089006)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
