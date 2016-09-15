@@ -8,6 +8,7 @@
 |2016/9/12|早秋有了这一色 就能成为时尚霸主！|林立雯,陈薇,亦帆,亚美将,夏宇童,吴依霖,Kevin|[点击播放](http://www.bilibili.com/video/av6281204/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|出门就是危险 12星座的平安指数！|李妍憬,陈德烈,王瞳,詹子晴,亚美将,小Call,唐立淇|[点击播放](http://www.bilibili.com/video/av6244627/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|美妆大赏得奖篇 加码奖不完！|詹子晴,筱蕾,汪诗敏,小Call,刘书宏,杨子仪,Tony,Sam,Kevin|[点击播放](http://www.bilibili.com/video/av6233729/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|时尚PK赛 我的OOO最美！|陈薇,李怡贞,汪诗敏,GiGi,邱珮淇,夏宇童淇,林辉瑝,吴泽炜,裴颉,Kevin,柳燕|[点击播放](http://www.bilibili.com/video/av6219122/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|都是假的！消除你的时尚业障！|陈孙华,Vincent,洪棠,筱蕾,佩洁,臧迎颖,曾智希,邱珮淇|[点击播放](http://www.bilibili.com/video/av6185234/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|女儿就是前世情人！爹就是偏心怎么样！|唐立淇,王仁甫,陈薇,李易,廖家仪,甄莉,亦帆,吴亦伟|[点击播放](http://www.bilibili.com/video/av6185299/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|一瓶就让你启动洪荒之力 美妆大赏得奖篇|Kevin,柳燕,梁佑南,GiGi,林立雯,筱蕾,芳瑜,施羿丞|[点击播放](http://www.bilibili.com/video/av6194192/)|[网盘下载](http://xz.twzy.tw)

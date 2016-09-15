@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/12|台湾人健康惊世记录？！|赖薇如,检场,柯以柔|[点击播放](http://www.bilibili.com/video/av6281027/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|医生的私生活比手术还精彩？|Mei,沈玉琳,甄莉|[点击播放](http://www.bilibili.com/video/av6233657/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|医师好神？算病秘诀大公开！|谢祖武,陈珮骐,海芬|[点击播放](http://www.bilibili.com/video/av6219128/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|女人最容易忽视的健康死角！|解婕翎,翊萱,甄莉|[点击播放](http://www.bilibili.com/video/av6185183/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|怒！医师一句话惹恼病人？！|佩佩,哈孝远,郑仲茵|[点击播放](http://www.bilibili.com/video/av6133990/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|身体酸痛暗藏健康危机？|李佳豫,潘若迪,LuLu|[点击播放](http://www.bilibili.com/video/av6134018/)|[网盘下载](http://xz.twzy.tw)

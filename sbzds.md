@@ -8,6 +8,7 @@
 |2016/9/12|你认为的麻吉好友 这些话测出他的真心？！|余皓然,沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6281103/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|明明就是好姐妹 为何什么都要比？！|余皓然,玉菲,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6244647/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|国外代购超会抢便宜 哪些好吃好用必败品？|温士凯,瞿光复,Sam,韦汝|[点击播放](http://www.bilibili.com/video/av6233739/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|欢庆遇入第6年 豪华吃喝玩乐大放送？！|沈玉琳,韦汝,陶礼君|[点击播放](http://www.bilibili.com/video/av6214231/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|好友的网路小动作 这样做真的会伤到人|韦汝,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6196642/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|朋友说另一半做这些事 该怎么面对和应对呢？|沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6167748/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|对他好工作就顺遂 秘书界不可告人的事？|余皓然,沈玉琳,卢燕俐,胡孝诚|[点击播放](http://www.bilibili.com/video/av6134021/)|[网盘下载](http://xz.twzy.tw)

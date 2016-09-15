@@ -8,6 +8,7 @@
 |2016/9/12|破解理财投资迷思 如何才能把小钱变大钱？|梁赫群,张旭岚,余皓然,小优,赖宪政,邱正宏|[点击播放](http://www.bilibili.com/video/av6288468/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|救命啊！陀螺妈妈忙不完！|侯昌明,黄文华,陈保仁,黄瑽宁|[点击播放](http://www.bilibili.com/video/av6237381/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|串起张清芳的每一刻！|张清芳,陈镇川,Vicky|[点击播放](http://www.bilibili.com/video/av6233672/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|残酷网路人气大挑战！|张芸京,周兴哲,关诗敏,陈零九,林建予|[点击播放](http://www.bilibili.com/video/av6214161/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|哥儿们VS姐妹淘出游 玩法哪里不一样？|小钟,潘若迪,Paul,张艾亚,小优,瑶瑶|[点击播放](http://www.bilibili.com/video/av6196645/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|哪来老师这么帅！|郭彦均|[点击播放](http://www.bilibili.com/video/av6163261/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|報告班長！同學會集合！|来宾|[点击播放](http://www.bilibili.com/video/av6137704/)|[网盘下载](http://xz.twzy.tw)

@@ -8,6 +8,7 @@
 |2016/9/12|爱的联谊停看听！要怎么选伤脑筋！！|吴怡霈,Kid|[点击播放](http://www.bilibili.com/video/av6281224/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|这个夏天黑了一截？！不怕！教你轻松白回来！！|陈姿秀(皮肤科医师),Sam(彩妆老师)|[点击播放](http://www.bilibili.com/video/av6237396/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|各国泡面大集合！面面俱到好滋味！！|Joyce(泡面达人),赵函颖(营养专家)|[点击播放](http://www.bilibili.com/video/av6233701/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|生活态度代表一切？男人品味鉴定大会！|吴怡霈,Kid|[点击播放](http://www.bilibili.com/video/av6214263/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|消耗热量无极限！大学生健身教师开课啦！！|TOY|[点击播放](http://www.bilibili.com/video/av6196652/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|每餐之间的小确幸！各国解馋零食来啰！|翁滋蔓,凯皓,Erica(网站副执行长),伊登(网购达人)|[点击播放](http://www.bilibili.com/video/av6163314/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/01|就算有一百双鞋！还是会想穿的终极美鞋！！|Kimiko,李佑群|[点击播放](http://www.bilibili.com/video/av6134100/)|[网盘下载](http://xz.twzy.tw)
