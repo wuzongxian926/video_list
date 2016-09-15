@@ -8,6 +8,7 @@
 |2016中秋|爱玩客中秋特辑||[点击播放](http://www.aixifan.com/v/ac3095213)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|台北 及食救援 即期品也能出好料！|詹姆士,夏语心|[点击播放](http://www.aixifan.com/v/ac3105886)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|山小旅行&海水玩乐 边玩边赚|小钟,宇珊,鲔鱼|[点击播放](http://www.aixifan.com/v/ac3102202)|[网盘下载](http://xz.twzy.tw)
+|2016/9/08|十六世纪的回忆 寻找福尔摩沙|吴凤,费丹尼|[点击播放](http://www.aixifan.com/v/ac3091262)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|小琉球 劉品言瘦身復出，猛食小琉球，解放的離島小旅行！|劉品言|[点击播放](http://www.aixifan.com/v/ac3088862)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|跳岛移动 高空赏美景 罗塔岛|詹姆士,雷瑟琳|[点击播放](http://www.aixifan.com/v/ac3089937)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|说走就走 连假去哪看这里！ 韩国|小钟,鲔鱼,五熊|[点击播放](http://www.aixifan.com/v/ac3083855)|[网盘下载](http://xz.twzy.tw)
