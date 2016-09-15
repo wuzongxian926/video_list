@@ -7,6 +7,8 @@
 ----|----|----|----|----
 |2016/9/08|粉Meeting|恺乐,毛弟,毕书尽|[点击播放](http://www.aixifan.com/v/ac3103409)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|百分百游戏王|小猪,恺乐,张立东,卢学睿,雨婷,夏和熙,凯莉,李懿|[点击播放](http://www.aixifan.com/v/ac3102934)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
+|2016/9/06|百分百LIVE|子闳,伟晋,韦礼安|[点击播放](http://www.aixifan.com/v/ac3093126)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
+|2016/9/03|娱乐神爆卦 红人交流版|恺乐,毛弟,莫莉,阿蹦,星期天先生,MerMer,曾一军,黄明志,AmoiAmoi|[点击播放](http://www.aixifan.com/v/ac3093252)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/8/31|百分百LIVE|恺乐,威廉,袁艾菲|[点击播放](http://www.aixifan.com/v/ac3074114)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/8/30|百分百LIVE|恺乐,Kid,谢祖武,莫棠予|[点击播放](http://www.aixifan.com/v/ac3075267)|[网盘下载](http://xz.twzy.tw)
 |2016/8/29|韩语歌翻唱大赛|恺乐,威廉,包伟铭,豆子,Echo,陈嘉唯,BOi,葛兆恩|[点击播放](http://www.aixifan.com/v/ac3075282)|[网盘下载](http://xz.twzy.tw)
