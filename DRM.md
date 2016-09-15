@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/9/13|烤肉打铁之夜！哪一道会让你口水流不停？|翁滋蔓,熊熊,廖慧珍,柯俊年,古小伟,法比欧,陈允中,撒基努,小刚|[点击播放](http://www.aixifan.com/v/ac3103993)|[网盘](http://xz.twzy.tw)
 |2016/9/06|老歌尬嘻哈94狂！这首歌你到KTV会点吗？！|亦帆,娄峻硕,舒子晨,4PLAY,沈玉琳,布莱恩,卢学叡,Boiii P,大根,香蕉,阿虎,大卫萧|[点击播放](http://www.aixifan.com/v/ac3085535)|[网盘](http://xz.twzy.tw)
 |2016/9/05|夫妻默契实测！婚结愈久 愈不懂他在想什么？|阿Ben,王中平,Terry,Paul,徐小可,余皓然,罗美玲,咪咪,吕文婉|[点击播放](http://www.aixifan.com/v/ac3082625)|[网盘](http://xz.twzy.tw)
 |2016/9/02|这些上班族！不当艺人太可惜了！|展瑞,展荣,纳豆,朱芷莹,禹安|[点击播放](http://www.aixifan.com/v/ac3074393)|[网盘](http://xz.twzy.tw)
