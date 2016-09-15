@@ -6,7 +6,10 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/9/13|起士烤酸甜肋排 & 烤虾佐莎莎酱|温国智|[点击播放](http://www.bilibili.com/video/av6278757/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/12|咸凤梨鱼肚汤 & 香腊珊瑚梅花肉|温国智|[点击播放](http://www.bilibili.com/video/av6263345/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|熏鸡起司可丽饼 & 野蔬坚果可丽饼|微微蔡|[点击播放](http://www.bilibili.com/video/av6232887/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/08|鸳鸯紫色之恋 & 洋葱香辣鸡|温国智|[点击播放](http://www.bilibili.com/video/av6248104/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/07|苦瓜豆腐虾 & 青红凤丝|温国智,老王|[点击播放](http://www.bilibili.com/video/av6248100/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|鸭肉丝瓜煲 & 洋葱精炖洋芋|温国智|[点击播放](http://www.bilibili.com/video/av6196107/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|辣椒泡鲈鱼 & 黄瓜辣子鸡丁|温国智|[点击播放](http://www.bilibili.com/video/av6178109/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/02|手制金桔酱 & 金桔酱烧鸡|微微蔡|[点击播放](http://www.bilibili.com/video/av6134389/)|[网盘下载](http://xz.twzy.tw)
