@@ -5,6 +5,9 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/13|说出来会解约？！艺人经纪人告解大会！！|汤尼陈,吴震亚,解婕翎,佳佳,曹西平,Jeremy,张峰奇,Alan|[点击播放](http://www.tudou.com/programs/view/WLop9Vhsy58/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/12|婚后就变妻奴夫奴？！蒙面好友控诉大会！！|沈玉琳,芽芽,Terry,罗美玲,阿布,Michelle,史丹利,GiGi|[点击播放](http://www.tudou.com/programs/view/bWBho0JLg74/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/08|谁是真正的大坏蛋？八点档反派排位战！|陈珮骐,徐亨,游诗璟,王灿,李若弦|[点击播放](http://www.tudou.com/programs/view/6zcsvKt5X1A/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|隐藏的谐星！他们真的会模仿吗？|丁晓雯,阿虎,李懿,香蕉,蔡佳麟,卡古,小纶,冠子,欉震天,辛龙,简淑萍,何美,陈虹竹,大飞,安格斯|[点击播放](http://www.tudou.com/programs/view/nWL5zsfiaKQ/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|选前得意选后失意？！他们不靠唱歌闯出一片天！！|卢学叡,艾成,黄靖伦,江明娟,林道远,边权,蔡忠颖|[点击播放](http://www.tudou.com/programs/view/UMBfkV1YXDI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|不然换你订订看！！艺人推荐便当排位战！！|邰智源,郭彦均,陈艾熙,沈玉琳,赵正平|[点击播放](http://www.tudou.com/programs/view/U5WX2e4zGNE/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

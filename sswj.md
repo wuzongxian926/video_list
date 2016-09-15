@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/9/12|彰化 美食师徒PK战 输了看着办！|黄镫辉,曾子余|[点击播放](http://www.bilibili.com/video/av6281223/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/08|小琉球+澎湖 玩离岛拍MV 48小时接力赛(2)|莎莎,林立雯,颜永烈,浩角翔起(浩子阿翔)|[点击播放](http://www.bilibili.com/video/av6233743/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|小琉球 玩离岛拍MV 48小时接力赛|莎莎,林立雯|[点击播放](http://www.bilibili.com/video/av6207338/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|到宜兰流浪去 打工换食|颜永烈,曾子余,张立东|[点击播放](http://www.bilibili.com/video/av6219177/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|高雄 老板真的太佛心！不来怎么行！|黄镫辉,曾子余|[点击播放](http://www.bilibili.com/video/av6194576/)|[网盘下载](http://xz.twzy.tw)
