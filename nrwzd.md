@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/12|早秋有了这一色 就能成为时尚霸主！|林立雯,陈薇,亦帆,亚美将,夏宇童,吴依霖,Kevin|[点击播放](http://www.bilibili.com/video/av6281204/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|出门就是危险 12星座的平安指数！|李妍憬,陈德烈,王瞳,詹子晴,亚美将,小Call,唐立淇|[点击播放](http://www.bilibili.com/video/av6244627/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|美妆大赏得奖篇 加码奖不完！|詹子晴,筱蕾,汪诗敏,小Call,刘书宏,杨子仪,Tony,Sam,Kevin|[点击播放](http://www.bilibili.com/video/av6233729/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/05|都是假的！消除你的时尚业障！|陈孙华,Vincent,洪棠,筱蕾,佩洁,臧迎颖,曾智希,邱珮淇|[点击播放](http://www.bilibili.com/video/av6185234/)|[网盘下载](http://xz.twzy.tw)

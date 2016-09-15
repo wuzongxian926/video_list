@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/13|讓男人崩潰的女人招式|来宾|[点击播放](http://www.bilibili.com/video/av6280888/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|遇上這些事好困擾！|来宾|[点击播放](http://www.bilibili.com/video/av6234177/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|關於孫燕姿…|来宾|[点击播放](http://www.bilibili.com/video/av6199837/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|回味無窮的國外旅行|来宾|[点击播放](http://www.bilibili.com/video/av6196603/)|[网盘下载](http://xz.twzy.tw)
