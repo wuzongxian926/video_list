@@ -8,7 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
-|2016/9/13|烤肉打铁之夜！哪一道会让你口水流不停？|翁滋蔓,熊熊,廖慧珍,柯俊年,古小伟,法比欧,陈允中,撒基努,小刚|[点击播放](http://www.aixifan.com/v/ac3103993)|[网盘](http://xz.twzy.tw)
+|2016/9/13|烤肉打铁之夜！哪一道会让你口水流不停？|翁滋蔓,熊熊,廖慧珍,柯俊年,古小伟,法比欧,陈允中,撒基努,小刚|[点击播放](http://www.aixifan.com/v/ac3107858)|[网盘](http://xz.twzy.tw)
 |2016/9/12|真实面对吧！原来观众是这样看你的！|沈玉琳,Tony Chen,詹子晴,小钟|[点击播放](http://www.aixifan.com/v/ac3100260)|[网盘](http://xz.twzy.tw)
 |2016/9/09|“哏哏哏”这歌词也太有哏！谐音歌曲大比拼！|阿虎,小赖,嘻小瓜,小优,大根,阿美,黄豪平,涵冷娜,唐从圣,Oh特爽(左边那位,右边那位)|[点击播放](http://www.aixifan.com/v/ac3093263)|[网盘](http://xz.twzy.tw)
 |2016/9/08|没错！出道愈久对粉丝愈冷漠？粉丝の实境突击！|曹西平,杨绣惠,马国贤,小钟|[点击播放](http://www.aixifan.com/v/ac3090676)|[网盘](http://xz.twzy.tw)
