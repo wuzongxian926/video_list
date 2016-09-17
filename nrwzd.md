@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/9/15|带上另一半的心机小旅行 这个夜晚保证浪漫|潘慧如,汪诗敏,Christine,邱珮淇,佩洁,可青,吴依霖,小布|[点击播放](http://www.bilibili.com/video/av6313407/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|2016秋冬时尚名牌包 豪华登场！|林韦君,张心妍,殷琦,汪诗敏,可青,Kevin|[点击播放](http://www.bilibili.com/video/av6309326/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/13|前任都跪下了！让现任永远离不开你的秘密|张家慧,赖薇如,芳瑜,筱蕾,陈薇,潘映竹,陈孙华,小布|[点击播放](http://www.bilibili.com/video/av6307299/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|早秋有了这一色 就能成为时尚霸主！|林立雯,陈薇,亦帆,亚美将,夏宇童,吴依霖,Kevin|[点击播放](http://www.bilibili.com/video/av6281204/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|出门就是危险 12星座的平安指数！|李妍憬,陈德烈,王瞳,詹子晴,亚美将,小Call,唐立淇|[点击播放](http://www.bilibili.com/video/av6244627/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|美妆大赏得奖篇 加码奖不完！|詹子晴,筱蕾,汪诗敏,小Call,刘书宏,杨子仪,Tony,Sam,Kevin|[点击播放](http://www.bilibili.com/video/av6233729/)|[网盘下载](http://xz.twzy.tw)

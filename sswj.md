@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/15|柬埔寨 谁来当大爷（上）|浩角翔起(浩子,阿翔)|[点击播放](http://www.bilibili.com/video/av6323100/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|玩离岛拍MV 48小时接力赛（下）|浩角翔起(浩子,阿翔),颜永烈|[点击播放](http://www.bilibili.com/video/av6309904/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|大风吹 系麦吹虾密 热血实境 验证特殊风情|颜永烈,曾子余,张立东|[点击播放](http://www.bilibili.com/video/av6310307/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|彰化 美食师徒PK战 输了看着办！|黄镫辉,曾子余|[点击播放](http://www.bilibili.com/video/av6281223/)|[网盘下载](http://xz.twzy.tw)

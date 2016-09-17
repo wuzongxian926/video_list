@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/9/15|外国婚礼好吃惊！让你大开眼界！|吴凤,韦佳德,罗平,Nico,东东,Maldy|[点击播放](http://www.bilibili.com/video/av6313949/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/14|男扮女装是会有后遗症的？|无尊,黄豪平,大根,李洛洋,董至成|[点击播放](http://www.bilibili.com/video/av6307291/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|破解理财投资迷思 如何才能把小钱变大钱？|梁赫群,张旭岚,余皓然,小优,赖宪政,邱正宏|[点击播放](http://www.bilibili.com/video/av6288468/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|救命啊！陀螺妈妈忙不完！|侯昌明,黄文华,陈保仁,黄瑽宁|[点击播放](http://www.bilibili.com/video/av6237381/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|串起张清芳的每一刻！|张清芳,陈镇川,Vicky|[点击播放](http://www.bilibili.com/video/av6233672/)|[网盘下载](http://xz.twzy.tw)

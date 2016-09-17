@@ -6,6 +6,8 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/9/15|别再被这些医疗噱头给骗啦？！|贝童彤,蒋伟文,Ruby|[点击播放](http://www.bilibili.com/video/av6313489/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/14|好真实！医院是暴露人性的地方！|侯昌明,张心妍,况明洁|[点击播放](http://www.bilibili.com/video/av6306682/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/13|搞定身体细节 打造完美体质！|小优,洪都拉斯,倪雅伦|[点击播放](http://www.bilibili.com/video/av6307849/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|台湾人健康惊世记录？！|赖薇如,检场,柯以柔|[点击播放](http://www.bilibili.com/video/av6281027/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|医生的私生活比手术还精彩？|Mei,沈玉琳,甄莉|[点击播放](http://www.bilibili.com/video/av6233657/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|这些药你还敢吃吗？|冯媛甄,李兴文,何嘉文|[点击播放](http://www.bilibili.com/video/av6207291/)|[网盘下载](http://xz.twzy.tw)
