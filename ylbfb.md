@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/10|百分百歌唱大赛|恺乐毛弟,戴佩妮,吴贞仪,晨悠,曾昱嘉,大Q,梁一贞|[点击播放](http://www.aixifan.com/v/ac3110198)|[网盘下载](http://xz.twzy.tw)
+|2016/9/09|恋爱百分百|小猪,威廉,简恺乐,邱昊奇,Masha,无尊|[点击播放](http://www.aixifan.com/v/ac3110190)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|粉Meeting|恺乐,毛弟,毕书尽|[点击播放](http://www.aixifan.com/v/ac3103409)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|百分百游戏王|小猪,恺乐,张立东,卢学睿,雨婷,夏和熙,凯莉,李懿|[点击播放](http://www.aixifan.com/v/ac3102934)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
 |2016/9/06|百分百LIVE|子闳,伟晋,韦礼安|[点击播放](http://www.aixifan.com/v/ac3093126)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)

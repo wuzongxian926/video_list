@@ -5,6 +5,6 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
-|第24集|||[点击播放](http://www.bilibili.com/video/av5994710/)|[网盘下载](http://xz.twzy.tw)
-|第21集|||[点击播放](http://www.bilibili.com/video/av5994710/)|[网盘下载](http://xz.twzy.tw)
-|第18集|||[点击播放](http://www.bilibili.com/video/av5994710/)|[网盘下载](http://xz.twzy.tw)
+|第24集|關卡勁量橋大改版，闖關者慘慘落敗？！|吳玟萱 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_2)|[网盘下载](http://xz.twzy.tw)
+|第21集|白雲闖關私帶武器，魔王是否安然逃過一劫？！|白雲 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574)|[网盘下载](http://xz.twzy.tw)
+|第18集|小潘潘大戰混血美女比拚熱舞！|陳子強 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_3)|[网盘下载](http://xz.twzy.tw)
