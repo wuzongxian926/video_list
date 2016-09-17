@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/13|Show Star最终合约争夺赛|恺乐,罗志祥,佳和,大目,李孝祖,詹仕伟,曾有荣?,翁宇庆,吴承恩,李振纬,林哲宇|[点击播放](http://www.aixifan.com/v/ac3107286)|[网盘下载](http://xz.twzy.tw)
+|2016/9/12|Show Star最终合约争夺赛|恺乐,罗志祥,佳和,大目,李孝祖,詹仕伟,曾有荣?,翁宇庆,吴承恩,李振纬|[点击播放](http://www.aixifan.com/v/ac3108864)|[网盘下载](http://xz.twzy.tw)
 |2016/9/10|百分百歌唱大赛|恺乐毛弟,戴佩妮,吴贞仪,晨悠,曾昱嘉,大Q,梁一贞|[点击播放](http://www.aixifan.com/v/ac3110198)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|恋爱百分百|小猪,威廉,简恺乐,邱昊奇,Masha,无尊|[点击播放](http://www.aixifan.com/v/ac3110190)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|粉Meeting|恺乐,毛弟,毕书尽|[点击播放](http://www.aixifan.com/v/ac3103409)|[点击播放](http://www.aixifan.com/v/ac3068672)|[网盘下载](http://xz.twzy.tw)
