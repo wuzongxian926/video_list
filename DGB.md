@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/15|不只卸妆还要比名次！！电眼美女卸妆排位战！！|熊海灵,徐玮吟,安苡爱,Amanda,钡钡,陈志强,潘若迪,Sam|[点击播放](http://www.tudou.com/programs/view/6E8fFfLZ1cE/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/14|30拉警报？！单身熟女宪哥帮你挑男友！！|王思佳,Mei,林彦君,Apple,萝莉塔,黄露瑶|[点击播放](http://www.tudou.com/programs/view/OU2KdKdWdOI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|说出来会解约？！艺人经纪人告解大会！！|汤尼陈,吴震亚,解婕翎,佳佳,曹西平,Jeremy,张峰奇,Alan|[点击播放](http://www.tudou.com/programs/view/WLop9Vhsy58/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|婚后就变妻奴夫奴？！蒙面好友控诉大会！！|沈玉琳,芽芽,Terry,罗美玲,阿布,Michelle,史丹利,GiGi|[点击播放](http://www.tudou.com/programs/view/bWBho0JLg74/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|谁是真正的大坏蛋？八点档反派排位战！|陈珮骐,徐亨,游诗璟,王灿,李若弦|[点击播放](http://www.tudou.com/programs/view/6zcsvKt5X1A/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
