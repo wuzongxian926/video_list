@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/14|大学生暑假之最颁奖典礼！！|吴怡霈,Kid|[点击播放](http://www.bilibili.com/video/av6308238/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|爱的联谊停看听！要怎么选伤脑筋！！|吴怡霈,Kid|[点击播放](http://www.bilibili.com/video/av6281224/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|这个夏天黑了一截？！不怕！教你轻松白回来！！|陈姿秀(皮肤科医师),Sam(彩妆老师)|[点击播放](http://www.bilibili.com/video/av6237396/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|各国泡面大集合！面面俱到好滋味！！|Joyce(泡面达人),赵函颖(营养专家)|[点击播放](http://www.bilibili.com/video/av6233701/)|[网盘下载](http://xz.twzy.tw)

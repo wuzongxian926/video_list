@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/14|玩离岛拍MV 48小时接力赛（下）|浩角翔起(浩子,阿翔),颜永烈|[点击播放](http://www.bilibili.com/video/av6309904/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/13|大风吹 系麦吹虾密 热血实境 验证特殊风情|颜永烈,曾子余,张立东|[点击播放](http://www.bilibili.com/video/av6310307/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|彰化 美食师徒PK战 输了看着办！|黄镫辉,曾子余|[点击播放](http://www.bilibili.com/video/av6281223/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|小琉球+澎湖 玩离岛拍MV 48小时接力赛(2)|莎莎,林立雯,颜永烈,浩角翔起(浩子阿翔)|[点击播放](http://www.bilibili.com/video/av6233743/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/07|小琉球 玩离岛拍MV 48小时接力赛|莎莎,林立雯|[点击播放](http://www.bilibili.com/video/av6207338/)|[网盘下载](http://xz.twzy.tw)

@@ -5,6 +5,9 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/15|和亲人同住的上班族 这些事情就该讲清楚吗？！|沈玉琳,玉菲,韦汝,林萃芬|[点击播放](http://www.bilibili.com/video/av6314106/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/14|超华丽的发泄美食 下班就要吃好料的？！|余皓然,Sam,杨皓如,ERICA|[点击播放](http://www.bilibili.com/video/av6308773/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/13|各地吃喝玩乐有撇步 导游也有不能说的秘辛？|佩佩,小Call,卢燕俐,矍光复|[点击播放](http://www.bilibili.com/video/av6309071/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|你认为的麻吉好友 这些话测出他的真心？！|余皓然,沈玉琳,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6281103/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|明明就是好姐妹 为何什么都要比？！|余皓然,玉菲,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6244647/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/08|国外代购超会抢便宜 哪些好吃好用必败品？|温士凯,瞿光复,Sam,韦汝|[点击播放](http://www.bilibili.com/video/av6233739/)|[网盘下载](http://xz.twzy.tw)
