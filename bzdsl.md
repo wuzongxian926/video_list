@@ -10,4 +10,6 @@
 |第20集|AcFun外國人來挑戰各關，居然輕鬆過關？！ |Junior 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116023)|[网盘下载](http://xz.twzy.tw)
 |第19集|AcFun小鐘欣賞美女房思瑜，錄影現場大告白！|房思瑜 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116137)|[网盘下载](http://xz.twzy.tw)
 |第18集|小潘潘大戰混血美女比拚熱舞！|陳子強 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_3)|[网盘下载](http://xz.twzy.tw)
+|第17集|AcFun日本美女現身，現場男性極為瘋狂！|小鐘 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116016)|[网盘下载](http://xz.twzy.tw)
 |第16集|AcFun各種關卡難不倒日本妹左井依玲！|吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116063)|[网盘下载](http://xz.twzy.tw)
+|第15集|AcFun馬國畢女人緣好，現場爭鋒出醋大爭鬥！|小甜甜 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116022)|[网盘下载](http://xz.twzy.tw)
