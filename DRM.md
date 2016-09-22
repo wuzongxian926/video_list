@@ -8,6 +8,8 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/9/20|哇！以前我怎么长这样？回到刚出道的那一年！|黄小柔,包伟铭,绿茶,锦绣二重唱,周定纬,大飞,大根,无尊|[点击播放](http://www.aixifan.com/v/ac3121213)|[网盘](http://xz.twzy.tw)
+|2016/9/19|乱入民间职业！你以为大家都能认出你？|邰智源,唐从圣,潘若迪,白云,解婕翎,大根|[点击播放](http://www.aixifan.com/v/ac3118913)|[网盘](http://xz.twzy.tw)
 |2016/9/16|大热门午夜场直播PK赛！绝对不会让你失望！|詹惟中,大根,黄豪平,小甜甜,李懿,Una,詹子晴|[点击播放](http://www.aixifan.com/v/ac3112576)|[网盘](http://xz.twzy.tw)
 |2016/9/15|每个人都有一首爱情故事主题曲！|小甜甜,Apple,亦帆,吴采臻,杨雅筑|[点击播放](http://www.aixifan.com/v/ac3107869)|[网盘](http://xz.twzy.tw)
 |2016/9/13|烤肉打铁之夜！哪一道会让你口水流不停？|翁滋蔓,熊熊,廖慧珍,柯俊年,古小伟,法比欧,陈允中,撒基努,小刚|[点击播放](http://www.aixifan.com/v/ac3107858)|[网盘](http://xz.twzy.tw)
