@@ -5,4 +5,6 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
-|第四集|男人色不色？看臉就知道！ 陳孝萱 吳宗憲 Jacky Show EP4| 陳孝萱,SBDW|[点击播放](http://www.bilibili.com/video/av5994710/)|[网盘下载](http://xz.twzy.tw)
+|第26集|AcFun政治三朵花蒞臨現場大談政治未來！吳宗憲 Jacky<br/>Show EP26|吳宗憲|[点击播放](http://www.aixifan.com/v/ac3117453)|[网盘下载](http://xz.twzy.tw)
+|第9集|AcFun火辣身材 男人按耐不住？ 小鐘 吳宗憲 Jacky<br/>Show EP9|小鐘 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3118063)|[网盘下载](http://xz.twzy.tw)
+|第4集|男人色不色？看臉就知道！ 陳孝萱 吳宗憲 Jacky Show EP4| 陳孝萱,SBDW|[点击播放](http://www.bilibili.com/video/av5994710/)|[网盘下载](http://xz.twzy.tw)

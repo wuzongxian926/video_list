@@ -43,9 +43,9 @@
 |9.19|穿越康熙|[]()<br>密码:|
 |9.18|名模出任务|[http://pan.baidu.com/s/1c2JXM2c](http://pan.baidu.com/s/1c2JXM2c)<br>密码:i1jl|超爱美小姐|[]()<br>密码:
 |9.18|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
-|9.18|没玩没了|[]()<br>密码:|GOGO捷运|[]()<br>密码:
+|9.18|没玩没了|[http://pan.baidu.com/s/1skYkidv](http://pan.baidu.com/s/1skYkidv)<br>密码:7iyu|GOGO捷运|[]()<br>密码:
 |9.18|GoGoTaiwan|[]()<br>密码:|后宫生还战|[http://pan.baidu.com/s/1cBovaI](http://pan.baidu.com/s/1cBovaI)<br>密码:tslo
-|9.17|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
+|9.17|综艺玩很大|[http://pan.baidu.com/s/1qXBl69Y](http://pan.baidu.com/s/1qXBl69Y)<br>密码:yp1a|天才冲冲冲|[]()<br>密码:
 |9.17|娱乐百分百|[]()<br>密码:|超爱美小姐|[]()<br>密码:
 |9.17|舞力全开|[]()<br>密码:|全民一起来|[http://pan.baidu.com/s/1nvwEMCx](http://pan.baidu.com/s/1nvwEMCx)<br>密码:vx01
 |9.16|综艺大热门|[http://pan.baidu.com/s/1c16kf7M](http://pan.baidu.com/s/1c16kf7M)<br>密码:m05o
