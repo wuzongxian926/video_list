@@ -5,6 +5,10 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/22|跪求合体！！单飞团体内幕大揭露！！|小钟,孙协志,萧景鸿,麦若愚,粘嫦钰,狄志伟|[点击播放](http://www.tudou.com/programs/view/ASZaSkTHKN4/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/21|舌战三强鼎立！！史上最狂辩论大赛！！|沈玉琳,玛莉亚,黄豪平,马西屏,吕文婉,王瑞德,姚呈儒,张玮哲,李赫|[点击播放](http://www.tudou.com/programs/view/TRp9K4Melhw/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/20|上了马路还会受欢迎吗？！网路歌手排位战！！|深白色,符琼音,JV,张语哝,贝可仪,卜星慧,Dena|[点击播放](http://www.tudou.com/programs/view/s8xD1xTs3iQ/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/19|宪神来开示！！渣男都是女人自己养出来的？！|廖辉英,许常德,张兆志,Ruby,王俐人,EVAN,詹子晴,郑凯欣,查梦岚,ERIN|[点击播放](http://www.tudou.com/programs/view/BZjdUjvVH80/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|不只卸妆还要比名次！！电眼美女卸妆排位战！！|熊海灵,徐玮吟,安苡爱,Amanda,钡钡,陈志强,潘若迪,Sam|[点击播放](http://www.tudou.com/programs/view/6E8fFfLZ1cE/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|30拉警报？！单身熟女宪哥帮你挑男友！！|王思佳,Mei,林彦君,Apple,萝莉塔,黄露瑶|[点击播放](http://www.tudou.com/programs/view/OU2KdKdWdOI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|说出来会解约？！艺人经纪人告解大会！！|汤尼陈,吴震亚,解婕翎,佳佳,曹西平,Jeremy,张峰奇,Alan|[点击播放](http://www.tudou.com/programs/view/WLop9Vhsy58/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

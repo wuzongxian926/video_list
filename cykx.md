@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/9/22|男星的瘋狂穿搭術|来宾|[点击播放](http://www.bilibili.com/video/av6381553/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|她不好笑 誰好笑？！|来宾|[点击播放](http://www.bilibili.com/video/av6304132/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|讓男人崩潰的女人招式|来宾|[点击播放](http://www.bilibili.com/video/av6280888/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/12|這樣的禮物你想要嗎？|来宾|[点击播放](http://www.bilibili.com/video/av6265301/)|[网盘下载](http://xz.twzy.tw)
