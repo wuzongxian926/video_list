@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/10/05|重庆山城 古都最新辣手玩法|阿达,李依瑾|[点击播放](http://www.acfun.tv/v/ac3158134)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|海外首发 移动厨房磅礴开张|詹姆士,曾国城|[点击播放](http://www.acfun.tv/v/ac3156297)|[网盘下载](http://xz.twzy.tw)
+|2016/10/03|超激玩乐！！此生毕冲梦幻山景|小钟,鲔鱼,五熊,詹惟中,民雄|[点击播放](http://www.acfun.tv/v/ac3154507)|[网盘下载](http://xz.twzy.tw)
 |2016中秋|爱玩客中秋特辑||[点击播放](http://www.aixifan.com/v/ac3095213)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|MV自拍So Easy~环游世界这里搞定！|小钟,宇珊,鲔鱼|[点击播放](http://www.aixifan.com/v/ac3120961)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|最美圣托里尼 我们来啦|阿达,郭书瑶|[点击播放](http://www.aixifan.com/v/ac3107501)|[网盘下载](http://xz.twzy.tw)
