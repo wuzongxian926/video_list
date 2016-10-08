@@ -10,6 +10,7 @@
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
 |2016/10/06|即使她离婚有小孩！我也想追的女星排行！|柯家豪,小钟,熊海灵,萧瑶,丁国琳,吕文婉,婷婷|[点击播放](http://www.acfun.tv/v/ac3159906)|[网盘](http://xz.twzy.tw)
 |2016/10/05|都什么时代了你还在模仿那些人！？新模仿角色打进击|洪都拉斯,白云,何美,大根,阿虎,Amanda,小赖,李洛洋,山猪,香蕉|[点击播放](http://www.acfun.tv/v/ac3157792)|[网盘](http://xz.twzy.tw)
+|2016/10/04|你不知道 你有多难带！经纪人吐苦水日！|韦汝,杨子仪,杨晨熙,Eason|[点击播放](http://www.acfun.tv/v/ac3156347)|[网盘](http://xz.twzy.tw)
 |2016/9/23|一张照片就成名？被搜寻到爆的照片红人！|哈孝远,康妮,BOi(陈信维,王翔永)|[点击播放](http://www.aixifan.com/v/ac3128956)|[网盘](http://xz.twzy.tw)
 |2016/9/22|女孩先别打哈欠！我当兵的事真的不无聊！|马西屏,梁赫群,Paul,林思杰,小赖,黄沐妍,LamiGirls(班班,卉妮,Eli,曲曲,妍言,慧慧)|[点击播放](http://www.aixifan.com/v/ac3126881)|[网盘](http://xz.twzy.tw)
 |2016/9/20|哇！以前我怎么长这样？回到刚出道的那一年！|黄小柔,包伟铭,绿茶,锦绣二重唱,周定纬,大飞,大根,无尊|[点击播放](http://www.aixifan.com/v/ac3121213)|[网盘](http://xz.twzy.tw)
