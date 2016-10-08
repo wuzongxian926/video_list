@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/10/06|小明星八卦面对面！！搭档不和内幕大揭密！！|粘嫦钰,麦若愚,吕文婉,曹西平,赵正平,梁赫群,Terry,黄乔歆|[点击播放](http://www.acfun.tv/v/ac3159991)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/05|神秘职业揭露室 征信社真的是现代福尔摩斯？！|王瑞德,彭华干|[点击播放](http://www.acfun.tv/v/ac3157848)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/10/04|都是荷尔蒙惹的祸？！青春期女儿让爸爸好心酸！！|何美&何美爸,蓝波&洁洁,侯昌明&侯赛蕾,小炳&央央|[点击播放](http://www.acfun.tv/v/ac3156162)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|跪求合体！！单飞团体内幕大揭露！！|小钟,孙协志,萧景鸿,麦若愚,粘嫦钰,狄志伟|[点击播放](http://www.tudou.com/programs/view/ASZaSkTHKN4/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|舌战三强鼎立！！史上最狂辩论大赛！！|沈玉琳,玛莉亚,黄豪平,马西屏,吕文婉,王瑞德,姚呈儒,张玮哲,李赫|[点击播放](http://www.tudou.com/programs/view/TRp9K4Melhw/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|上了马路还会受欢迎吗？！网路歌手排位战！！|深白色,符琼音,JV,张语哝,贝可仪,卜星慧,Dena|[点击播放](http://www.tudou.com/programs/view/s8xD1xTs3iQ/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

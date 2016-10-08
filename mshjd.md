@@ -6,6 +6,8 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/10/05|塔香鸡肉炒饭 & 酸甜凤梨鸡丁|温国智,老王|[点击播放](http://www.acfun.tv/v/ac3158263)|[网盘下载](http://xz.twzy.tw)
+|2016/10/04|芋头煲鸡翅汤 & 葱爆麻辣梅花肉|温国智|[点击播放](http://www.acfun.tv/v/ac3156091)|[网盘下载](http://xz.twzy.tw)
+|2016/10/03|清炖萝卜猪腱 & 松阪青江面|温国智|[点击播放](http://www.acfun.tv/v/ac3155947)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|香煎斑鱼佐文蛤白虾酱 & 斑鱼海中鲜蝦球|温国智|[点击播放](http://www.bilibili.com/video/av6380961/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|老妈烧肉 & 小米白玉虾|温国智,老王|[点击播放](http://www.bilibili.com/video/av6303507/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|起士烤酸甜肋排 & 烤虾佐莎莎酱|温国智|[点击播放](http://www.bilibili.com/video/av6278757/)|[网盘下载](http://xz.twzy.tw)
