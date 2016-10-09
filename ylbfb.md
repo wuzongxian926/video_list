@@ -12,6 +12,7 @@
 |2016/9/28|百分百LIVE|恺乐,邱翊橙,这群人|[点击播放](http://www.acfun.tv/v/ac3146348)|[网盘下载](http://xz.twzy.tw)
 |2016/9/27|粉Meeting|恺乐,威廉,韦礼安|[点击播放](http://www.acfun.tv/v/ac3149662)|[网盘下载](http://xz.twzy.tw)
 |2016/9/26|百分百大对抗|小猪,恺乐,威廉,小甜甜,嘻小瓜,赵骏亚,陈筱蕾|[点击播放](http://www.acfun.tv/v/ac3146785)|[网盘下载](http://xz.twzy.tw)
+|2016/9/23|明星好麻吉|威廉,恺乐,袁艾菲,小蛮,凯希|[点击播放](http://www.acfun.tv/v/ac3142079)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|恺乐庆生会|小猪,威廉,简恺乐,鼓鼓,刘书宏,许凯皓,杨升达,王子|[点击播放](http://www.acfun.tv/v/ac3144419)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|百分百LIVE|小猪,恺乐,谢和弦|[点击播放](http://www.acfun.tv/v/ac3144707)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|百分百LIVE|小猪,恺乐,郭书瑶|[点击播放](http://www.acfun.tv/v/ac3144865)|[网盘下载](http://xz.twzy.tw)
