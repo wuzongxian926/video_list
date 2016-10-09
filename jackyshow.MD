@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第35集|呼風喚雨的角色，就是歌神張學友！吳宗憲 Jacky Show EP35|張學友 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150432)|[网盘下载](http://xz.twzy.tw)
 |第34集|AcFun黑社會真的這麼狠心嗎？ Jacky|鈕承澤 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3114554)|[网盘下载](http://xz.twzy.tw)
 |第33集|AcFun網路世界是虛幻還是人性是虛幻呢_!|康康 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3115743)|[网盘下载](http://xz.twzy.tw)
 |第31集|AcFun只要可以帶來進步，保護人民就足夠了！吳宗憲|吳宗憲|[点击播放](http://www.aixifan.com/v/ac3115683)|[网盘下载](http://xz.twzy.tw)
@@ -20,6 +21,7 @@
 |第14集|AcFun賀一航風波不斷，現身說明！|賀一航 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3114542)|[网盘下载](http://xz.twzy.tw)
 |第13集|AcFun整人遊戲你玩得起嗎？|謝金燕 吳宗憲 Jacky|[点击播放](http://www.aixifan.com/v/ac3115710)|[网盘下载](http://xz.twzy.tw)
 |第12集|AcFun總統夫人的命都是天註定？ |吳宗憲 Jacky|[点击播放](http://www.aixifan.com/v/ac3115801)|[网盘下载](http://xz.twzy.tw)
+|第11集|0204女郎現身！Jacky Show EP11|陳為民 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150328)|[网盘下载](http://xz.twzy.tw)
 |第10集|AcFun澎恰恰經典模仿秀 Jacky Show EP10|澎恰恰 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3115248)|[网盘下载](http://xz.twzy.tw)
 |第9集|AcFun火辣身材 男人按耐不住？ 小鐘 吳宗憲 Jacky<br/>Show EP9|小鐘 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3118063)|[网盘下载](http://xz.twzy.tw)
 |第8集|AcFun小鐘生日福利多多，辣妹大跳艷舞！ |小鐘 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3115705)|[网盘下载](http://xz.twzy.tw)

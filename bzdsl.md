@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第25集|馬國賢跌破眾人眼鏡，闖關成功還獲得機車？！|馬國賢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150649)|[网盘下载](http://xz.twzy.tw)
 |第24集|關卡勁量橋大改版，闖關者慘慘落敗？！|吳玟萱 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_2)|[网盘下载](http://xz.twzy.tw)
 |第21集|白雲闖關私帶武器，魔王是否安然逃過一劫？！|白雲 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574)|[网盘下载](http://xz.twzy.tw)
 |第20集|AcFun外國人來挑戰各關，居然輕鬆過關？！ |Junior 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116023)|[网盘下载](http://xz.twzy.tw)
@@ -24,3 +25,6 @@
 |第6集|自稱過關機器馬國賢，慘遭魔王狠推下水！|馬國賢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3152962)|[网盘下载](http://xz.twzy.tw)
 |第5集|運動健將慘遭遊戲惡整？百戰大勝利 EP5|丁寧 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3151952)|[网盘下载](http://xz.twzy.tw)
 |第4集|吳宗憲 百戰大勝利 EP4|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3152057)|[网盘下载](http://xz.twzy.tw)
+|第3集|名模洪曉雷竟然成功挑戰香菇池!百戰大勝利 EP3|亮哲 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150642)|[网盘下载](http://xz.twzy.tw)
+|第2集|殷琦腳軟挑戰飛天籃球！百戰大勝利 EP2|殷琦 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150646)|[网盘下载](http://xz.twzy.tw)
+|第1集|俄羅斯美女瑪格麗特慘遭抹黑？|瑪格麗特 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150654)|[网盘下载](http://xz.twzy.tw)
