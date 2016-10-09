@@ -77,7 +77,7 @@
 |9.29|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |9.29|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |9.29|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
-|9.29|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|9.29|爱玩客|[http://pan.baidu.com/s/1dE0J0rR](http://pan.baidu.com/s/1dE0J0rR)<br>密码:hmhz|医师好辣|[]()<br>密码:
 |9.29|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |9.29|穿越康熙|[]()<br>密码:|
 |9.27|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
@@ -134,8 +134,8 @@
 |9.20|型男大主厨|[http://pan.baidu.com/s/1boRRUEF](http://pan.baidu.com/s/1boRRUEF)<br>密码:fhaw|女人我最大|[]()<br>密码:
 |9.20|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |9.20|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
-|9.20|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
-|9.20|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|9.20|美食好简单|[]()<br>密码:|国光帮帮忙|[http://pan.baidu.com/s/1kVsFYyr](http://pan.baidu.com/s/1kVsFYyr)<br>密码:7wgs
+|9.20|爱玩客|[http://pan.baidu.com/s/1o8he5E6](http://pan.baidu.com/s/1o8he5E6)<br>密码:ai4h|医师好辣|[]()<br>密码:
 |9.20|食尚玩家|[http://pan.baidu.com/s/1jIygXoE](http://pan.baidu.com/s/1jIygXoE)<br>密码:e0my|请你跟我这样过|[]()<br>密码:
 |9.20|穿越康熙|[]()<br>密码:|流行新势力|[]()<br>密码:
 |9.19|综艺大热门|[http://pan.baidu.com/s/1bFHOcA](http://pan.baidu.com/s/1bFHOcA)<br>密码:2s4u|小明星大跟班|[http://pan.baidu.com/s/1jHAcahS](http://pan.baidu.com/s/1jHAcahS)<br>密码:gjks
