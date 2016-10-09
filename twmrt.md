@@ -6,6 +6,8 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/9/25|珠寶鑑價達人_秦嗣林|秦嗣林|[点击播放](http://www.acfun.tv/v/ac3150760)|[网盘下载](http://xz.twzy.tw)
+|2016/9/18|总裁管理学 专访尹衍梁|尹衍梁|[点击播放](http://www.acfun.tv/v/ac3146834_2)|[网盘下载](http://xz.twzy.tw)
+|2016/9/11|王品集团创办人戴胜益|戴胜益|[点击播放](http://www.acfun.tv/v/ac3146834)|[网盘下载](http://xz.twzy.tw)
 |2016/9/04|導演王小棣|王小棣|[点击播放](http://www.aixifan.com/v/ac3109272)|[网盘下载](http://xz.twzy.tw)
 |2016/8/28|經濟部長_李世光|来宾|[点击播放](http://www.bilibili.com/video/av6192551/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/21|民歌之父_胡德夫|来宾|[点击播放](http://www.bilibili.com/video/av6115494/)|[网盘下载](http://xz.twzy.tw)

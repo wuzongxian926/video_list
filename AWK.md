@@ -9,6 +9,8 @@
 |2016/10/04|海外首发 移动厨房磅礴开张|詹姆士,曾国城|[点击播放](http://www.acfun.tv/v/ac3156297)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|超激玩乐！！此生毕冲梦幻山景|小钟,鲔鱼,五熊,詹惟中,民雄|[点击播放](http://www.acfun.tv/v/ac3154507)|[网盘下载](http://xz.twzy.tw)
 |2016/9/29|宜兰 黑白吃黑白玩 兰阳初秋轻旅行|吴凤,杜力|[点击播放](http://www.acfun.tv/v/ac3148230)|[网盘下载](http://xz.twzy.tw)
+|2016/9/28|女神秋游 全台怪怪美食大搜索|阿达,陈大天,林明祯|[点击播放](http://www.acfun.tv/v/ac3143710)|[网盘下载](http://xz.twzy.tw)
+|2016/9/27|九州出任务 神秘来宾驾到！|詹姆士,曾国城|[点击播放](http://www.acfun.tv/v/ac3142205)|[网盘下载](http://xz.twzy.tw)
 |2016中秋|爱玩客中秋特辑||[点击播放](http://www.aixifan.com/v/ac3095213)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|什么？这些都能烤？！|詹姆士|[点击播放](http://www.acfun.tv/v/ac3148216)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|MV自拍So Easy~环游世界这里搞定！|小钟,宇珊,鲔鱼|[点击播放](http://www.aixifan.com/v/ac3120961)|[网盘下载](http://xz.twzy.tw)
