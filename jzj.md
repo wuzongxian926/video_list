@@ -1,11 +1,11 @@
-# <div align = center>《18岁不睡》全集</div>
+# <div align = center>《台湾广播电视金钟奖》全集</div>
 #### <div align = center>最新台湾综艺 ：[www.twzy.tw](http://www.twzy.tw)  |  台湾综艺下载 ：[xz.twzy.tw](http://xz.twzy.tw)  |  台湾综艺全集 ：[qj.twzy.tw](http://qj.twzy.tw)</dir>
 ##### <div align = center>微信公众号 ：综艺GOGOGO  |  宝岛购购购  吴宗宪粉丝|台综twzy.tw-QQ群：[208096042](http://shang.qq.com/wpa/qunwpa?idkey=321d0a9d5570812413860c1a5c653e05859452e0629f65b7353ef70f5a5d68e7) 收藏高清原盘资源请联系QQ ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)</dir>
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
-|2016/10/06|我满18你再也禁不了！爸妈…不瞒你说“我做了”！！|黄越绥,卡古&卡古爸,大根&大根妈,余皓然&韩靖,玛莉亚&莉亚妈|[点击播放](http://www.acfun.tv/v/ac3164804)|[网盘下载](http://xz.twzy.tw)
+|第51届|第51届|吴宗宪 号角响起|[点击播放](http://www.acfun.tv/v/ac3163736)|[网盘下载](http://xz.twzy.tw)
 |2016/10/05|不修图不见人！戳破网美背后的真相！！|何嘉文,小优,古小伟,林建予|[点击播放](http://www.acfun.tv/v/ac3160538)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|回味情窦初开的贺尔蒙~那些年 我们一起倒追的学长！！|梁正群,阿诺,李运庆,詹子晴,黄镫辉|[点击播放](http://www.acfun.tv/v/ac3157969)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|嫩妹尺度无极限！这些照片怎么可能没有被检举！！|李洛洋,嘎嘎,陈珮骐,黄沐妍,陈纪东(摄影师)|[点击播放](http://www.acfun.tv/v/ac3156298)|[网盘下载](http://xz.twzy.tw)

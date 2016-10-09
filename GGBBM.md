@@ -88,6 +88,7 @@
 |2013/10/07|爆紅實況正妹！為何把生活攤在網路上！？||[点击播放](http://www.acfun.tv/v/ac2933671)|[网盘下载](http://xz.twzy.tw)
 |2013/09/18|進擊的誘惑Part2！男人要專心真的好難！||[点击播放](http://www.acfun.tv/v/ac2944831)|[网盘下载](http://xz.twzy.tw)
 |2013/09/10|那些年！我都從無名找正妹！||[点击播放](http://www.aixifan.com/v/ac3072281)|[网盘下载](http://xz.twzy.tw)
+|2013/08/28|女人脾氣好不好！黃湯下肚就知道？！||[点击播放](http://www.acfun.tv/v/ac3132982)|[网盘下载](http://xz.twzy.tw)
 |2013/08/06|國光扭蛋機！父親節拆禮物大賞！||[点击播放](http://www.acfun.tv/v/ac3001967)|[网盘下载](http://xz.twzy.tw)
 |2013/07/10|進擊的誘惑！這樣叫我怎麼專心？！||[点击播放](http://www.acfun.tv/v/ac2944496)|[网盘下载](http://xz.twzy.tw)
 |2013/07/02|國光扭蛋機！夏日泳裝換衣大賞！！||[点击播放](http://www.acfun.tv/v/ac3003207)|[网盘下载](http://xz.twzy.tw)

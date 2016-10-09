@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/07|小燕之夜|当在异乡遇上同乡…|曹西平,董事长乐团,阎宗玉,Terry,罗美玲|[点击播放](http://www.acfun.tv/v/ac3163188)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|手足的逆袭！艺人的兄弟姐妹有话要说！|张允曦,大根,无尊,Angel,Celine,Pauling,曜宇|[点击播放](http://www.acfun.tv/v/ac3158595)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|徐若瑄背后的温柔力量|徐若瑄,徐妈妈,徐若瑜,Fion|[点击播放](http://www.acfun.tv/v/ac3155435)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|外国婚礼好吃惊！让你大开眼界！|吴凤,韦佳德,罗平,Nico,东东,Maldy|[点击播放](http://www.bilibili.com/video/av6313949/)|[网盘下载](http://xz.twzy.tw)

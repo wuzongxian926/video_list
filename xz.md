@@ -23,8 +23,13 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
+|10.7|小燕之夜|[http://pan.baidu.com/s/1kURBCtp](http://pan.baidu.com/s/1kURBCtp)<br>密码:vkpe|穿越康熙|[]()<br>密码:
+|10.7|18岁不睡|[]()<br>密码:|型男大主厨|[]()<br>密码:
+|10.7|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
+|10.7|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
+|10.7|美凤有约|[]()<br>密码:|美食好简单|[]()<br>密码:
 |10.6|综艺大热门|[http://pan.baidu.com/s/1hsjY6ri](http://pan.baidu.com/s/1hsjY6ri)<br>密码:oxk3|小明星大跟班|[http://pan.baidu.com/s/1nu68Hap](http://pan.baidu.com/s/1nu68Hap)<br>密码:o65o
-|10.6|小燕之夜|[]()<br>密码:|18岁不睡|[]()<br>密码:
+|10.6|小燕之夜|[]()<br>密码:|18岁不睡|[http://pan.baidu.com/s/1i5ls7Y1](http://pan.baidu.com/s/1i5ls7Y1)<br>密码:ofcz
 |10.6|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |10.6|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |10.6|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1o8PdMsy](http://pan.baidu.com/s/1o8PdMsy)<br>密码:9uax
@@ -111,7 +116,7 @@
 |9.25|综艺大集合|[]()<br>密码:|台湾名人堂|[http://pan.baidu.com/s/1eSFQIVC](http://pan.baidu.com/s/1eSFQIVC)<br>密码:nuhy
 |9.25|没玩没了|[http://pan.baidu.com/s/1eSsQip8](http://pan.baidu.com/s/1eSsQip8)<br>密码:8hrj|GOGO捷运|[]()<br>密码:
 |9.25|GoGoTaiwan|[]()<br>密码:|后宫生还战|[http://pan.baidu.com/s/1qYSxDe8](http://pan.baidu.com/s/1qYSxDe8)<br>密码:xqkg
-|9.24|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
+|9.24|综艺玩很大|[http://pan.baidu.com/s/1dE2Lv8H](http://pan.baidu.com/s/1dE2Lv8H)<br>密码:ioso|天才冲冲冲|[]()<br>密码:
 |9.24|娱乐百分百|[]()<br>密码:|超爱美小姐|[]()<br>密码:
 |9.24|舞力全开|[http://pan.baidu.com/s/1eSDiQUA](http://pan.baidu.com/s/1eSDiQUA)<br>密码:v919|全民一起来|[http://pan.baidu.com/s/1nv4hjvz](http://pan.baidu.com/s/1nv4hjvz)<br>密码:iftn
 |9.23|综艺大热门|[http://pan.baidu.com/s/1o7MfgBS](http://pan.baidu.com/s/1o7MfgBS)<br>密码:nq17
