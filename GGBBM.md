@@ -94,5 +94,6 @@
 |2013/07/10|進擊的誘惑！這樣叫我怎麼專心？！||[点击播放](http://www.acfun.tv/v/ac2944496)|[网盘下载](http://xz.twzy.tw)
 |2013/07/02|國光扭蛋機！夏日泳裝換衣大賞！！||[点击播放](http://www.acfun.tv/v/ac3003207)|[网盘下载](http://xz.twzy.tw)
 |2013/06/26|為了紅什麼都願意！試鏡篇！！ ||[点击播放](http://www.aixifan.com/v/ac3056862)|[网盘下载](http://xz.twzy.tw)
+|2013/06/07|國光夾夾樂！女星的睡覺私密玩物！！||[点击播放](http://www.acfun.tv/v/ac3160959)|[网盘下载](http://xz.twzy.tw)
 |2013/05/23|性感照的背後！那一夜她們決定脫了！！||[点击播放](http://www.acfun.tv/v/ac3036463)|[网盘下载](http://xz.twzy.tw)
 |2013/05/17|國光女神復古遊戲運動會！||[点击播放](http://www.acfun.tv/v/ac3018527)|[网盘下载](http://xz.twzy.tw)

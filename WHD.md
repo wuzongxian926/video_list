@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2015年|综艺玩很大高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/whd2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺玩很大高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/whd2014.md)|[网盘](http://xz.twzy.tw)
+|2016/10/08|海南岛 海口（下） 命运金钱蛋|吴宗宪,Kid,包伟铭,詹子晴,西田惠里奈,阿布,筱蕾,玉兔,黄豪平|[点击播放](http://www.acfun.tv/v/ac3166569)|[网盘](http://xz.twzy.tw)
 |2016/10/01|海南岛 海口|吴宗宪,Kid,包伟铭,詹子晴,西田惠里奈,阿布,筱蕾,玉兔,黄豪平|[点击播放](http://www.acfun.tv/v/ac3152529_1)|[网盘](http://xz.twzy.tw)
 |2016/9/24|台湾 澎湖（下） 命运好好玩|吴宗宪,Kid,孙协志,安苡爱,陈大天,林彦君,徐凯希,筱崎泫,黄豪平|[点击播放](http://www.acfun.tv/v/ac3133735)|[网盘](http://xz.twzy.tw)
 |2016/9/17|台湾 澎湖|吴宗宪,Kid,孙协志,安苡爱,陈大天,林彦君,徐凯希,筱崎泫,黄豪平|[点击播放](http://www.aixifan.com/v/ac3116264)|[网盘](http://xz.twzy.tw)
