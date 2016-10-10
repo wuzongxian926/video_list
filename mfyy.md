@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/10/06|有效提升專注力 工作加倍有效率|向娃、Ice Man、蕭順基|[点击播放](http://www.acfun.tv/v/ac3160177)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|美鳳上菜 羅宋湯|Sam、余朱青|[点击播放](http://www.acfun.tv/v/ac3157410)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/26|台湾之光 全身都是宝香蕉养生术|汪建民,马力欧,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av6504558/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|台湾之光 轻松维持消化道 香蕉风味面|Julie,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av6380850/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|顾骨本 拥有活力才是关键|向娃,刘秀雯,王瑞玲(医药记者)|[点击播放](http://www.bilibili.com/video/av6278225/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|电锅快速出好菜：竹笋咸粥|林秀琴,蔡季芳|[点击播放](http://www.bilibili.com/video/av6263173/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
