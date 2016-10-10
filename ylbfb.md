@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/05|百分百LIVE|子闳,伟晋,杨丞琳|[点击播放](http://www.acfun.tv/v/ac3162219)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|百分百LIVE|小猪,威廉,简恺乐,邱昊奇,Masha,无尊|[点击播放](http://www.acfun.tv/v/ac3158708)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|娱乐神爆挂|小猪,恺乐,嘻小瓜,杨升达|[点击播放](http://www.acfun.tv/v/ac3157757)|[网盘下载](http://xz.twzy.tw)
 |2016/10/01|粉Meeting|恺乐,毛弟,周兴哲|[点击播放](http://www.acfun.tv/v/ac3157759)|[网盘下载](http://xz.twzy.tw)
