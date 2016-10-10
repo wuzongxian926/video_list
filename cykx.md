@@ -9,6 +9,8 @@
 |2016/10/06|倾听身体的声音|来宾|[点击播放](http://www.acfun.tv/v/ac3160933)|[网盘下载](http://xz.twzy.tw)
 |2016/10/05|他們就愛姐弟戀？！|来宾|[点击播放](http://www.acfun.tv/v/ac3158070)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|超自信！大小真的没关系！|来宾|[点击播放](http://www.acfun.tv/v/ac3156046)|[网盘下载](http://xz.twzy.tw)
+|2016/10/03|金曲歌王歌后來了|来宾|[点击播放](http://www.bilibili.com/video/av6539615/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/30|這樣的壞男人你喜歡嗎？！|来宾|[点击播放](http://www.bilibili.com/video/av6508199/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|男星的瘋狂穿搭術|来宾|[点击播放](http://www.bilibili.com/video/av6381553/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|她不好笑 誰好笑？！|来宾|[点击播放](http://www.bilibili.com/video/av6304132/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|讓男人崩潰的女人招式|来宾|[点击播放](http://www.bilibili.com/video/av6280888/)|[网盘下载](http://xz.twzy.tw)

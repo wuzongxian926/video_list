@@ -10,6 +10,7 @@
 |2016/10/05|老板五大恶行恶状 身为员工该怎么办？！|沈玉琳,余皓然,卢燕俐,胡孝诚|[点击播放](http://www.acfun.tv/v/ac3160946)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|年度采买各种大出清 这些促销真的省钱吗？！|韦汝,Sam,刘雨柔,洪素卿|[点击播放](http://www.acfun.tv/v/ac3158736)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|上班族最爱的宅配美食 五分钟也能澎湃又好吃？！|韦汝,Apple,Sam,陶礼君|[点击播放](http://www.acfun.tv/v/ac3156485)|[网盘下载](http://xz.twzy.tw)
+|2016/9/30|初次的男女见面聚会 这些行为女孩儿不喜欢？？|余皓然,刘雨柔,张艾亚,林萃芬|[点击播放](http://www.bilibili.com/video/av6525237/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|和亲人同住的上班族 这些事情就该讲清楚吗？！|沈玉琳,玉菲,韦汝,林萃芬|[点击播放](http://www.bilibili.com/video/av6314106/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|超华丽的发泄美食 下班就要吃好料的？！|余皓然,Sam,杨皓如,ERICA|[点击播放](http://www.bilibili.com/video/av6308773/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|各地吃喝玩乐有撇步 导游也有不能说的秘辛？|佩佩,小Call,卢燕俐,矍光复|[点击播放](http://www.bilibili.com/video/av6309071/)|[网盘下载](http://xz.twzy.tw)
