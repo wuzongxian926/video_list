@@ -11,6 +11,7 @@
 |2016/10/04|手足的逆袭！艺人的兄弟姐妹有话要说！|张允曦,大根,无尊,Angel,Celine,Pauling,曜宇|[点击播放](http://www.acfun.tv/v/ac3158595)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|徐若瑄背后的温柔力量|徐若瑄,徐妈妈,徐若瑜,Fion|[点击播放](http://www.acfun.tv/v/ac3155435)|[网盘下载](http://xz.twzy.tw)
 |2016/9/30|国际认证的超夯表演！|蔡皓怡,蔡之栋,林宗颖,廖弈捷,廖志华,马照琪,张逸军|[点击播放](http://www.bilibili.com/video/av6516899/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/29|婚前婚后 亲爱的 你怎么不一样了？|麦克,况明洁,Stanley,依依,阿布,Michelle|[点击播放](http://www.bilibili.com/video/av6493710/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|外国婚礼好吃惊！让你大开眼界！|吴凤,韦佳德,罗平,Nico,东东,Maldy|[点击播放](http://www.bilibili.com/video/av6313949/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|男扮女装是会有后遗症的？|无尊,黄豪平,大根,李洛洋,董至成|[点击播放](http://www.bilibili.com/video/av6307291/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|孩子！爸妈舍不得你长大！|蓝波&洁洁,崔佩仪&贝克宇,王仁甫&乐乐|[点击播放](http://www.bilibili.com/video/av6299058/)|[网盘下载](http://xz.twzy.tw)
