@@ -12,6 +12,7 @@
 |2016/9/29|留下或丢掉都好痛！！爱情遗产该如何处置？！|成语荞,哈孝远,刘雨柔,小优,郭鑫|[点击播放](http://www.tudou.com/programs/view/E8oNFUp0cBY/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/28|想吃美食就拿八卦来换！！邪恶夜宵篇！！|沈玉琳,何嘉文,Paul,依依,Erica(美食评论家),余果栋,黄怡文(娱乐记者)|[点击播放](http://www.tudou.com/programs/view/lPhdfsOGBsk/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/27|Dancing Queen排位战！！谁是最强舞姬？！|斯亚,妖娇,米亚若,曾甜,安乔|[点击播放](http://www.tudou.com/programs/view/hja-vfqmU3A/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/26|宪神来开示！！恶女也是男人自己养出来的？！|苦苓,陈艾琳,李妍憬,Allen,安格斯,马可,卡古,译代,Jack|[点击播放](http://www.tudou.com/programs/view/YzR2VJbyufI/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|跪求合体！！单飞团体内幕大揭露！！|小钟,孙协志,萧景鸿,麦若愚,粘嫦钰,狄志伟|[点击播放](http://www.tudou.com/programs/view/ASZaSkTHKN4/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|舌战三强鼎立！！史上最狂辩论大赛！！|沈玉琳,玛莉亚,黄豪平,马西屏,吕文婉,王瑞德,姚呈儒,张玮哲,李赫|[点击播放](http://www.tudou.com/programs/view/TRp9K4Melhw/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|上了马路还会受欢迎吗？！网路歌手排位战！！|深白色,符琼音,JV,张语哝,贝可仪,卜星慧,Dena|[点击播放](http://www.tudou.com/programs/view/s8xD1xTs3iQ/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
