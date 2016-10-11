@@ -4,7 +4,7 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20161010|综艺大热门|原来你都背着老公做这些事！!人气不守妇道排行榜！|Vicky,甄莉,何妤玟,何嘉文,王思佳|[点击播放](http://www.acfun.tv/v/ac3170038)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161010|综艺大热门|原来你都背着老公做这些事！人气不守妇道排行榜！|Vicky,甄莉,何妤玟,何嘉文,王思佳|[点击播放](http://www.acfun.tv/v/ac3170038)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161010|小明星大跟班|奉子成婚真的好吗？！小爸爸的天空是晴还是雨？？|沈玉琳,宝妈,阿布|[点击播放](http://www.acfun.tv/v/ac3169292)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161010|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161010|18岁不睡|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
