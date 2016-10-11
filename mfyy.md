@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/10|北海岸 艺术之旅|林国基|[点击播放](http://www.acfun.tv/v/ac3167820)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/06|有效提升專注力 工作加倍有效率|向娃、Ice Man、蕭順基|[点击播放](http://www.acfun.tv/v/ac3160177)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|美鳳上菜 羅宋湯|Sam、余朱青|[点击播放](http://www.acfun.tv/v/ac3157410)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/29|顾骨本 拥有活力才是关键|向娃,刘秀雯,王瑞玲(医药记者)|[点击播放](http://www.bilibili.com/video/av6492921/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
