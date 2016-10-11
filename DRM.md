@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/10/10|原来你都背着老公做这些事！！人气不守妇道排行榜！|Vicky,甄莉,何妤玟,何嘉文,王思佳|[点击播放](http://www.acfun.tv/v/ac3170038)|[网盘](http://xz.twzy.tw)
 |2016/10/06|即使她离婚有小孩！我也想追的女星排行！|柯家豪,小钟,熊海灵,萧瑶,丁国琳,吕文婉,婷婷|[点击播放](http://www.acfun.tv/v/ac3159906)|[网盘](http://xz.twzy.tw)
 |2016/10/05|都什么时代了你还在模仿那些人！？新模仿角色打进击|洪都拉斯,白云,何美,大根,阿虎,Amanda,小赖,李洛洋,山猪,香蕉|[点击播放](http://www.acfun.tv/v/ac3157792)|[网盘](http://xz.twzy.tw)
 |2016/10/04|你不知道 你有多难带！经纪人吐苦水日！|韦汝,杨子仪,杨晨熙,Eason|[点击播放](http://www.acfun.tv/v/ac3156347)|[网盘](http://xz.twzy.tw)
