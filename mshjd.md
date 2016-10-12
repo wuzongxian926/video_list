@@ -16,6 +16,7 @@
 |2016/9/27|山药水果玉米鸡汤 & 蒜苗四破鱼|温国智|[点击播放](http://www.bilibili.com/video/av6471093/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/23|冰镇醉元宝 & 猪脚黄豆汤|微微蔡|[点击播放](http://www.bilibili.com/video/av6464610/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|香煎斑鱼佐文蛤白虾酱 & 斑鱼海中鲜蝦球|温国智|[点击播放](http://www.bilibili.com/video/av6380961/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/21|香苹糖醋藕 & 鲜蚵荸荠蛋|温国智,老王|[点击播放](http://www.bilibili.com/video/av6375591/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|川味烤排骨 & 麻辣煎饺|温国智|[点击播放](http://www.bilibili.com/video/av6464590/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|炸金针水莲 & 辣味孜然紫茄|温国智|[点击播放](http://www.bilibili.com/video/av6481635/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/16|意大利玫瑰饺 & 焗番茄茄子派|微微蔡|[点击播放](http://www.acfun.tv/v/ac3148472)|[网盘下载](http://xz.twzy.tw)
