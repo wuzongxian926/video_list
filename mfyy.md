@@ -14,6 +14,8 @@
 |2016/9/26|台湾之光 全身都是宝香蕉养生术|汪建民,马力欧,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av6504558/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|台湾之光 轻松维持消化道 香蕉风味面|Julie,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av6380850/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|跑车长腿美魔女谈诗玲 圆歌手梦|谈诗玲,陈建铭(锅具达人)|[点击播放](http://www.bilibili.com/video/av6477674/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/16|日本九州吃透透 强棒面|郭宗坤,廖宇平(九州达人)|[点击播放](http://www.bilibili.com/video/av6362761/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/9/15|现代科技文明病 酸痛 眼涩 问题多|潘若迪,詹惟中,余朱青(营养师)|[点击播放](http://www.bilibili.com/video/av6362657/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|顾骨本 拥有活力才是关键|向娃,刘秀雯,王瑞玲(医药记者)|[点击播放](http://www.bilibili.com/video/av6278225/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|电锅快速出好菜：竹笋咸粥|林秀琴,蔡季芳|[点击播放](http://www.bilibili.com/video/av6263173/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/9/09|美鳳上菜 高纖香煎雞胸|韋汝、陳柏臣|[点击播放](http://www.bilibili.com/video/av6231607/)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

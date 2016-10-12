@@ -19,6 +19,7 @@
 |2016/9/22|看得出来吗？他们真的一身好舞艺！|蓝波,大根,香蕉,翁滋蔓,邦邦,凯皓,施达伶,安妮,舒子晨|[点击播放](http://www.bilibili.com/video/av6465264/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|妈妈们的头痛选择！当羊妈好？还是虎妈好？|钟欣凌,季芹,王月|[点击播放](http://www.bilibili.com/video/av6465150/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|就是这招 让女人心动的瞬间！|陈为民,陈德烈,祖雄,大根,谢忻,施达伶,杨雅筑,谢宝萱,宋萍恩,卢薇|[点击播放](http://www.bilibili.com/video/av6379280/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/19|妈妈们的头痛选择！当羊妈好？还是虎妈好？|钟欣凌,季芹,王月|[点击播放](http://www.bilibili.com/video/av6365910/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|外国婚礼好吃惊！让你大开眼界！|吴凤,韦佳德,罗平,Nico,东东,Maldy|[点击播放](http://www.bilibili.com/video/av6313949/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|男扮女装是会有后遗症的？|无尊,黄豪平,大根,李洛洋,董至成|[点击播放](http://www.bilibili.com/video/av6307291/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|孩子！爸妈舍不得你长大！|蓝波&洁洁,崔佩仪&贝克宇,王仁甫&乐乐|[点击播放](http://www.bilibili.com/video/av6299058/)|[网盘下载](http://xz.twzy.tw)

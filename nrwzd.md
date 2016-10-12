@@ -18,6 +18,7 @@
 |2016/9/22|从头到脚这样做 才能成为零负评女神|张心妍,薇琪,小Call,洪棠,陈薇,潘映竹,吴依霖,小布|[点击播放](http://www.bilibili.com/video/av6465121/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|台欧日韩练习生 各国联军时尚入门PK赛|芳瑜,纪卜心,潘映竹,臧迎颖,夏宇童,吴依霖,Kevin|[点击播放](http://www.bilibili.com/video/av6474423/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|有神快拜！女神的秘密大公开|刘书宏,洪棠,小Call,袁艾菲,林嘉绮,MICHAEL,佑群|[点击播放](http://www.bilibili.com/video/av6379258/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/19|收假限定！让你开工、开学惊艳|梁佑南,Christine,阿当,HANNAH,邱珮淇,臧迎颖,佑群,Vincent|[点击播放](http://www.bilibili.com/video/av6365491/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|带上另一半的心机小旅行 这个夜晚保证浪漫|潘慧如,汪诗敏,Christine,邱珮淇,佩洁,可青,吴依霖,小布|[点击播放](http://www.bilibili.com/video/av6313407/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|2016秋冬时尚名牌包 豪华登场！|林韦君,张心妍,殷琦,汪诗敏,可青,Kevin|[点击播放](http://www.bilibili.com/video/av6309326/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|前任都跪下了！让现任永远离不开你的秘密|张家慧,赖薇如,芳瑜,筱蕾,陈薇,潘映竹,陈孙华,小布|[点击播放](http://www.bilibili.com/video/av6307299/)|[网盘下载](http://xz.twzy.tw)

@@ -14,6 +14,7 @@
 |2016/9/26|医生没告诉你的恐怖真相？|张艾亚,星星王子,Julie|[点击播放](http://www.bilibili.com/video/av6456188/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|医生是超级业务员？|韦汝,Eason,曾雅兰|[点击播放](http://www.bilibili.com/video/av6420802/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|网友热搜健康问题排行榜！|王宇婕,谢祖武,李亮瑾|[点击播放](http://www.bilibili.com/video/av6379232/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/19|健康崩坏前夕大征兆？|Ruby,李明川,殷琦|[点击播放](http://www.bilibili.com/video/av6365415/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|别再被这些医疗噱头给骗啦？！|贝童彤,蒋伟文,Ruby|[点击播放](http://www.bilibili.com/video/av6313489/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|好真实！医院是暴露人性的地方！|侯昌明,张心妍,况明洁|[点击播放](http://www.bilibili.com/video/av6306682/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|搞定身体细节 打造完美体质！|小优,洪都拉斯,倪雅伦|[点击播放](http://www.bilibili.com/video/av6307849/)|[网盘下载](http://xz.twzy.tw)
