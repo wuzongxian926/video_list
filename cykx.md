@@ -12,6 +12,8 @@
 |2016/10/03|金曲歌王歌后來了|来宾|[点击播放](http://www.bilibili.com/video/av6539615/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/30|這樣的壞男人你喜歡嗎？！|来宾|[点击播放](http://www.bilibili.com/video/av6508199/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/29|喜歡這樣的她嗎？|来宾|[点击播放](http://www.bilibili.com/video/av6484495/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/28|國外留學 辛酸肚裡吞？！|来宾|[点击播放](http://www.bilibili.com/video/av6460813/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/27|藝人改名 理由百百種|来宾|[点击播放](http://www.bilibili.com/video/av6454400/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|男星的瘋狂穿搭術|来宾|[点击播放](http://www.bilibili.com/video/av6381553/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|這些女星糗事特別多？！|来宾|[点击播放](http://www.bilibili.com/video/av6488719/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|她不好笑 誰好笑？！|来宾|[点击播放](http://www.bilibili.com/video/av6304132/)|[网盘下载](http://xz.twzy.tw)

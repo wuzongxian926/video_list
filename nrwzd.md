@@ -13,6 +13,7 @@
 |2016/9/29|梦幻下午茶！你还没吃过就太弱了！|张心妍,洪棠,韦汝,亚美将,赖薇如,陈茂齐,王毓翔|[点击播放](http://www.bilibili.com/video/av6493626/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/28|一笑能倾城！成为微笑女神就靠这招|薇琪,夏宇童,崔佩仪,小范范,Hannah,刘书宏,王毓翔,贾司特,小布,Vincent|[点击播放](http://www.bilibili.com/video/av6475340/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/27|上班族不论ON或OFF 都能美翻天！|陈薇,于嘉莹,汪诗敏,佩洁,HANNAH,怡贞,吴依霖,Kevin|[点击播放](http://www.bilibili.com/video/av6465124/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/26|入秋家一样 让你美到2017|倪雅伦,汪诗敏,赖薇如,夏宇童,可青,怡贞,小布,佑群|[点击播放](http://www.bilibili.com/video/av6454478/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|从头到脚这样做 才能成为零负评女神|张心妍,薇琪,小Call,洪棠,陈薇,潘映竹,吴依霖,小布|[点击播放](http://www.bilibili.com/video/av6465121/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|台欧日韩练习生 各国联军时尚入门PK赛|芳瑜,纪卜心,潘映竹,臧迎颖,夏宇童,吴依霖,Kevin|[点击播放](http://www.bilibili.com/video/av6474423/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|带上另一半的心机小旅行 这个夜晚保证浪漫|潘慧如,汪诗敏,Christine,邱珮淇,佩洁,可青,吴依霖,小布|[点击播放](http://www.bilibili.com/video/av6313407/)|[网盘下载](http://xz.twzy.tw)

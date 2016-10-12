@@ -12,6 +12,8 @@
 |2016/10/03|上班族最爱的宅配美食 五分钟也能澎湃又好吃？！|韦汝,Apple,Sam,陶礼君|[点击播放](http://www.acfun.tv/v/ac3156485)|[网盘下载](http://xz.twzy.tw)
 |2016/9/30|初次的男女见面聚会 这些行为女孩儿不喜欢？？|余皓然,刘雨柔,张艾亚,林萃芬|[点击播放](http://www.bilibili.com/video/av6525237/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/28|让你想翻白眼的同事 遇到这些事件怎么办？！|余皓然,沈玉琳,卢燕俐,林萃芬|[点击播放](http://www.bilibili.com/video/av6475283/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/27|常听说的保健习惯 其实这些正在残害你？！|Sam,韦汝,洪素卿,张其轩|[点击播放](http://www.bilibili.com/video/av6461000/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/26|男人嘴上就是要赢 面子有那么重要吗？|余皓然,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6454507/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|他们每分钟几亿上下 理财界不告诉你的事？！|刘雨柔,沈玉琳,余皓然,卢燕俐|[点击播放](http://www.bilibili.com/video/av6465263/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|聚会聊天就是要开心 讨厌鬼来破坏怎么办？！|余皓然,沈玉琳,刘雨柔,林萃芬|[点击播放](http://www.bilibili.com/video/av6475731/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|职场会遇到的尴尬情况 该怎么面对简单化解？|韦汝,卢燕俐,杨皓如,胡孝诚|[点击播放](http://www.bilibili.com/video/av6485375/)|[网盘下载](http://xz.twzy.tw)

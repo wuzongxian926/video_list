@@ -13,6 +13,8 @@
 |2016/9/30|国际认证的超夯表演！|蔡皓怡,蔡之栋,林宗颖,廖弈捷,廖志华,马照琪,张逸军|[点击播放](http://www.bilibili.com/video/av6516899/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/29|婚前婚后 亲爱的 你怎么不一样了？|麦克,况明洁,Stanley,依依,阿布,Michelle|[点击播放](http://www.bilibili.com/video/av6493710/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/28|减肥的“关键时刻”！我的胖还有救吗？|大恺,炜宣,轰冻妈,大宝,花太郎,美美,胖虎,李明川,林嘉绮,Michael,陈保仁|[点击播放](http://www.bilibili.com/video/av6475920/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/27|她们出外景比男人还Man！|曹兰,袁艾菲,韦汝,谢忻|[点击播放](http://www.bilibili.com/video/av6460998/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/26|超疯狂！多胞胎家庭生活！|佩佩,依依,依佩妈,兔包,菜包,肉包,EVA,谦谦,承承,纬纬,三宝妈,美美,真真,智智,陈保仁|[点击播放](http://www.bilibili.com/video/av6454405/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|看得出来吗？他们真的一身好舞艺！|蓝波,大根,香蕉,翁滋蔓,邦邦,凯皓,施达伶,安妮,舒子晨|[点击播放](http://www.bilibili.com/video/av6465264/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|妈妈们的头痛选择！当羊妈好？还是虎妈好？|钟欣凌,季芹,王月|[点击播放](http://www.bilibili.com/video/av6465150/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|外国婚礼好吃惊！让你大开眼界！|吴凤,韦佳德,罗平,Nico,东东,Maldy|[点击播放](http://www.bilibili.com/video/av6313949/)|[网盘下载](http://xz.twzy.tw)
