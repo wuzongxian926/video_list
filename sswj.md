@@ -9,6 +9,8 @@
 |2016/10/04|三宝斗三岛（下）|颜永烈,曾子余,张立东|[点击播放](http://www.acfun.tv/v/ac3158596)|[网盘下载](http://xz.twzy.tw)
 |2016/10/03|入秋开泡了！直击宜兰泡汤最前线！|黄镫辉,曾子余|[点击播放](http://www.acfun.tv/v/ac3156634)|[网盘下载](http://xz.twzy.tw)
 |2016/9/29|百岳暖身趴 拼完体力拼食力|莎莎,颜永烈,浩角翔起(浩子,阿翔)|[点击播放](http://www.bilibili.com/video/av6496716/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/27|屏东 三宝斗三岛|颜永烈,曾子余,张立东|[点击播放](http://www.bilibili.com/video/av6465317/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/22|欲望台中 罪恶美食|莎莎,林立雯,浩角翔起(浩子,阿翔)|[点击播放](http://www.bilibili.com/video/av6465297/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|中坜美食新欢惊点赛|颜永烈,曾子余,张立东|[点击播放](http://www.bilibili.com/video/av6379294/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|柬埔寨 谁来当大爷（上）|浩角翔起(浩子,阿翔)|[点击播放](http://www.bilibili.com/video/av6323100/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|玩离岛拍MV 48小时接力赛（下）|浩角翔起(浩子,阿翔),颜永烈|[点击播放](http://www.bilibili.com/video/av6309904/)|[网盘下载](http://xz.twzy.tw)
