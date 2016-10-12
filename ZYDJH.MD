@@ -7,6 +7,7 @@
 ----|----|----|----|----
 |2016/10/02|苗栗·西湖|马国毕,林辉瑝,黄安琪,陈怡婷,饼干,费丹尼,安苡爱,潘映竹|[点击播放](http://www.acfun.tv/v/ac3156495)|[网盘下载](http://xz.twzy.tw)
 |2016/9/25|台中·大甲|童韦杰,颜晓筠,Gino,红毛,Una,LALA|[点击播放](http://www.bilibili.com/video/av6448699/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/18|宜兰·头城|马国毕,LOOK,VIVI,杜忻恬,无尊,郭忠佑,魏可人,李又汝|[点击播放](http://www.bilibili.com/video/av6348408/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/11|彰化·大村|撒基努,童韦杰,林柏妤,江振恺,卡古,蔡允洁,小晰晰|[点击播放](http://www.bilibili.com/video/av6269139/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/04|嘉义·竹崎|王翔弘,费丹尼,赖慧如,成润,华千涵,曹菀琳|[点击播放](http://www.bilibili.com/video/av6193063/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/28|台中·沙鹿|江振恺,钱君仲,郭婷筠,郭忠佑,黄安琪,廷廷,邱慧雯|[点击播放](http://www.bilibili.com/video/av6120780/)|[网盘下载](http://xz.twzy.tw)

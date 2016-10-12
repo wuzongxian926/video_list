@@ -18,6 +18,7 @@
 |2016/9/22|他们每分钟几亿上下 理财界不告诉你的事？！|刘雨柔,沈玉琳,余皓然,卢燕俐|[点击播放](http://www.bilibili.com/video/av6465263/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|聚会聊天就是要开心 讨厌鬼来破坏怎么办？！|余皓然,沈玉琳,刘雨柔,林萃芬|[点击播放](http://www.bilibili.com/video/av6475731/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|职场会遇到的尴尬情况 该怎么面对简单化解？|韦汝,卢燕俐,杨皓如,胡孝诚|[点击播放](http://www.bilibili.com/video/av6485375/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/16|男人的这些贴心举动 竟是婆媳问题导火线？！|余皓然,沈玉琳,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6327277/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|和亲人同住的上班族 这些事情就该讲清楚吗？！|沈玉琳,玉菲,韦汝,林萃芬|[点击播放](http://www.bilibili.com/video/av6314106/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|超华丽的发泄美食 下班就要吃好料的？！|余皓然,Sam,杨皓如,ERICA|[点击播放](http://www.bilibili.com/video/av6308773/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|各地吃喝玩乐有撇步 导游也有不能说的秘辛？|佩佩,小Call,卢燕俐,矍光复|[点击播放](http://www.bilibili.com/video/av6309071/)|[网盘下载](http://xz.twzy.tw)

@@ -7,6 +7,8 @@
 ----|----|----|----|----
 |2016/10/01|#116 韓流star流行時尚|来宾|[点击播放](http://www.bilibili.com/video/av6525232/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/24|115集 男神養成術|来宾|[点击播放](http://www.bilibili.com/video/av6420791/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/10|114集 南投好好玩特別企劃|来宾|[点击播放](http://www.bilibili.com/video/av6342690/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/04|113集 一起來當時尚生活好野人|来宾|[点击播放](http://www.bilibili.com/video/av6327288/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/03|不浪费机票钱 旅韩必败攻略|Sam,ZUZU,小抠,陈欣欣,米粒Q|[点击播放](http://www.bilibili.com/video/av6237272/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/28|111集 旅韓必敗攻略(下)|来宾|[点击播放](http://www.bilibili.com/video/av6174561/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/27|专家让你快乐塑|小甜甜,Peter,李明川,李汉城,来花,鸿杰|[点击播放](http://www.bilibili.com/video/av6162883/)|[网盘下载](http://xz.twzy.tw)

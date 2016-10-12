@@ -20,6 +20,7 @@
 |2016/9/21|妈妈们的头痛选择！当羊妈好？还是虎妈好？|钟欣凌,季芹,王月|[点击播放](http://www.bilibili.com/video/av6465150/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/20|就是这招 让女人心动的瞬间！|陈为民,陈德烈,祖雄,大根,谢忻,施达伶,杨雅筑,谢宝萱,宋萍恩,卢薇|[点击播放](http://www.bilibili.com/video/av6379280/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|妈妈们的头痛选择！当羊妈好？还是虎妈好？|钟欣凌,季芹,王月|[点击播放](http://www.bilibili.com/video/av6365910/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/16|维持婚姻长久的终极秘诀！|刘尔金&曾莹玥,刘畊宏&王婉霏,邱永林,曾阳晴|[点击播放](http://www.bilibili.com/video/av6327295/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/15|外国婚礼好吃惊！让你大开眼界！|吴凤,韦佳德,罗平,Nico,东东,Maldy|[点击播放](http://www.bilibili.com/video/av6313949/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/14|男扮女装是会有后遗症的？|无尊,黄豪平,大根,李洛洋,董至成|[点击播放](http://www.bilibili.com/video/av6307291/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/13|孩子！爸妈舍不得你长大！|蓝波&洁洁,崔佩仪&贝克宇,王仁甫&乐乐|[点击播放](http://www.bilibili.com/video/av6299058/)|[网盘下载](http://xz.twzy.tw)
