@@ -6,6 +6,7 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |2016/10/02|Ep225 苗栗 作客山線新玩法|来宾|[点击播放](http://www.acfun.tv/v/ac3155192)|[网盘下载](http://xz.twzy.tw)
+|2016/9/25|Ep224 南投竹山 探訪前山第一城|来宾|[点击播放](http://www.bilibili.com/video/av6453071/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/11|台灣觀巴 GoGoTaiwan Ep222 享受吧！小奢華旅行|来宾|[点击播放](http://www.bilibili.com/video/av6266178/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/04|Ep221 桃園 山野探險 今夏大挑戰|来宾|[点击播放](http://www.bilibili.com/video/av6185034/)|[网盘下载](http://xz.twzy.tw)
 |2016/8/21|來嘉玩!當一天嘉義人|来宾|[点击播放](http://www.bilibili.com/video/av5959534/)|[网盘下载](http://xz.twzy.tw)

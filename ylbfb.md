@@ -10,6 +10,7 @@
 |2016/10/03|娱乐神爆挂|小猪,恺乐,嘻小瓜,杨升达|[点击播放](http://www.acfun.tv/v/ac3157757)|[网盘下载](http://xz.twzy.tw)
 |2016/10/01|粉Meeting|恺乐,毛弟,周兴哲|[点击播放](http://www.acfun.tv/v/ac3157759)|[网盘下载](http://xz.twzy.tw)
 |2016/9/30|百分百大对抗|威廉,恺乐,邱昊奇,利晴天,刘书宏,宝弟,金阳|[点击播放](http://www.acfun.tv/v/ac3157689)|[网盘下载](http://xz.twzy.tw)
+|2016/9/29|新声耳Mazing|恺乐,威廉,崔子格,阿爆,王奕瑾,ASA|[点击播放](http://www.acfun.tv/v/ac3172713)|[网盘下载](http://xz.twzy.tw)
 |2016/9/28|百分百LIVE|恺乐,邱翊橙,这群人|[点击播放](http://www.acfun.tv/v/ac3146348)|[网盘下载](http://xz.twzy.tw)
 |2016/9/27|粉Meeting|恺乐,威廉,韦礼安|[点击播放](http://www.acfun.tv/v/ac3149662)|[网盘下载](http://xz.twzy.tw)
 |2016/9/26|百分百大对抗|小猪,恺乐,威廉,小甜甜,嘻小瓜,赵骏亚,陈筱蕾|[点击播放](http://www.acfun.tv/v/ac3146785)|[网盘下载](http://xz.twzy.tw)

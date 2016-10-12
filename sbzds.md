@@ -14,6 +14,7 @@
 |2016/9/28|让你想翻白眼的同事 遇到这些事件怎么办？！|余皓然,沈玉琳,卢燕俐,林萃芬|[点击播放](http://www.bilibili.com/video/av6475283/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/27|常听说的保健习惯 其实这些正在残害你？！|Sam,韦汝,洪素卿,张其轩|[点击播放](http://www.bilibili.com/video/av6461000/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/26|男人嘴上就是要赢 面子有那么重要吗？|余皓然,刘雨柔,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6454507/)|[网盘下载](http://xz.twzy.tw)
+|2016/9/23|好友谈恋爱放闪无止境 这些行为真的会惹火人？！|余皓然,鲔鱼,杨皓如,林萃芬|[点击播放](http://www.bilibili.com/video/av6420827/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/22|他们每分钟几亿上下 理财界不告诉你的事？！|刘雨柔,沈玉琳,余皓然,卢燕俐|[点击播放](http://www.bilibili.com/video/av6465263/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/21|聚会聊天就是要开心 讨厌鬼来破坏怎么办？！|余皓然,沈玉琳,刘雨柔,林萃芬|[点击播放](http://www.bilibili.com/video/av6475731/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/19|职场会遇到的尴尬情况 该怎么面对简单化解？|韦汝,卢燕俐,杨皓如,胡孝诚|[点击播放](http://www.bilibili.com/video/av6485375/)|[网盘下载](http://xz.twzy.tw)
