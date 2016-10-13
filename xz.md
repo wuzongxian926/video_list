@@ -42,7 +42,7 @@
 |10.10|食尚玩家|[http://pan.baidu.com/s/1i5qczWh](http://pan.baidu.com/s/1i5qczWh)<br>密码:updl|请你跟我这样过|[]()<br>密码:
 |10.10|穿越康熙|[]()<br>密码:|
 |10.9|名模出任务|[]()<br>密码:|超爱美小姐|[]()<br>密码:
-|10.9|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
+|10.9|综艺大集合|[http://pan.baidu.com/s/1dE4Nze5](http://pan.baidu.com/s/1dE4Nze5)<br>密码:5ylj|台湾名人堂|[]()<br>密码:
 |10.9|没玩没了|[http://pan.baidu.com/s/1o7Wpt6y](http://pan.baidu.com/s/1o7Wpt6y)<br>密码:7ydz|GOGO捷运|[]()<br>密码:
 |10.9|GoGoTaiwan|[]()<br>密码:|后宫生还战|[http://pan.baidu.com/s/1c871xk](http://pan.baidu.com/s/1c871xk)<br>密码:ol8e
 |10.8|综艺玩很大|[http://pan.baidu.com/s/1pLaWWeZ](http://pan.baidu.com/s/1pLaWWeZ)<br>密码:jt54|天才冲冲冲|[]()<br>密码:
