@@ -26,4 +26,4 @@
 |大陆寻奇|中国电视台<br>每周日晚6点|[播放](https://github.com/wuzongxian926/video_list/blob/master/dlxq.md)|[网盘](http://xz.twzy.tw)|超级夜总会|三立台湾台<br>每周六晚6:30|[播放](https://github.com/wuzongxian926/video_list/blob/master/CJYZH.MD)|[网盘](http://xz.twzy.tw)
 |JACKYSHOW|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/jackyshow.MD)|[网盘](http://xz.twzy.tw)|宪哥来宾|持续更新|[播放](https://github.com/wuzongxian926/video_list/blob/master/laibin.md)|[网盘](http://xz.twzy.tw)
 |百战大胜利|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/bzdsl.md)|[网盘](http://xz.twzy.tw)|18岁不睡|中天综合台<br>周一至周五晚11点|[播放](https://github.com/wuzongxian926/video_list/blob/master/18.md)|[网盘](http://xz.twzy.tw)
-|金钟奖|一年一届|[播放](https://github.com/wuzongxian926/video_list/blob/master/jzj.md)|[网盘](http://xz.twzy.tw)
+|金钟奖|一年一届|[播放](https://github.com/wuzongxian926/video_list/blob/master/jzj.md)|[网盘](http://xz.twzy.tw)|齐天大胜|下线停播|[播放](https://github.com/wuzongxian926/video_list/blob/master/monkey.md)|[网盘](http://xz.twzy.tw)
