@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/08|【第209集】明星舞王舞后爭霸賽  小小舞王爭霸賽 ! |来宾|[点击播放](http://www.acfun.tv/v/ac3181773)|[网盘下载](http://xz.twzy.tw)
 |2016/9/24|明星舞王舞后爭霸賽 小小舞王爭霸賽 ! |来宾|[点击播放](http://www.acfun.tv/v/ac3158631)|[网盘下载](http://xz.twzy.tw)
 |2016/9/17|【第206集】明星舞王舞后爭霸賽 !|来宾|[点击播放](http://www.bilibili.com/video/av6475417/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/10|【第205集】明星舞王舞后爭霸賽 & 團體組年度總冠軍 - ZERO FOUR 示範表演 !|来宾|[点击播放](http://www.bilibili.com/video/av6296442/)|[网盘下载](http://xz.twzy.tw)
