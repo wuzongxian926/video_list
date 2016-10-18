@@ -9,6 +9,7 @@
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
 |2016/10/13|世上真的有人长得一模一样？艺能界复制人合体！！|依依,佩佩,萧蓉,萧骧,贝童彤,玉兔,梁凯莉,曾雅兰,黄豪平,小炳,小赖,Una,无尊|[点击播放](http://www.acfun.tv/v/ac3178480)|[网盘](http://xz.twzy.tw)
+|2016/10/12|慎入！人气网美大素颜！你还热的哪位?|曾子余,林大晋,大恺,哈孝远,LALA,施菲亚,魏可人,蚂蚁,糖糖|[点击播放](http://www.acfun.tv/v/ac3178550)|[网盘](http://xz.twzy.tw)
 |2016/10/11|很难吧！洗脑神曲大改造？！|周定纬,张芸京,小钟,刘明湘,No Name|[点击播放](http://www.acfun.tv/v/ac3172706)|[网盘](http://xz.twzy.tw)
 |2016/10/10|原来你都背着老公做这些事！！人气不守妇道排行榜！|Vicky,甄莉,何妤玟,何嘉文,王思佳|[点击播放](http://www.acfun.tv/v/ac3170038)|[网盘](http://xz.twzy.tw)
 |2016/10/06|即使她离婚有小孩！我也想追的女星排行！|柯家豪,小钟,熊海灵,萧瑶,丁国琳,吕文婉,婷婷|[点击播放](http://www.acfun.tv/v/ac3159906)|[网盘](http://xz.twzy.tw)
