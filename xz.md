@@ -47,10 +47,10 @@
 |10.13|综艺大热门|[http://pan.baidu.com/s/1kUL6xwz](http://pan.baidu.com/s/1kUL6xwz)<br>密码:eiii|小明星大跟班|[http://pan.baidu.com/s/1kVnWEHp](http://pan.baidu.com/s/1kVnWEHp)<br>密码:vyct
 |10.13|小燕之夜|[http://pan.baidu.com/s/1dE755GP](http://pan.baidu.com/s/1dE755GP)<br>密码:j7ur|18岁不睡|[http://pan.baidu.com/s/1qYIoHPU](http://pan.baidu.com/s/1qYIoHPU)<br>密码:uhar
 |10.13|型男大主厨|[http://pan.baidu.com/s/1jHD0XSE](http://pan.baidu.com/s/1jHD0XSE)<br>密码:r4qz|女人我最大|[http://pan.baidu.com/s/1bPS4cm](http://pan.baidu.com/s/1bPS4cm)<br>密码:d18u
-|10.13|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
+|10.13|上班这党事|[http://pan.baidu.com/s/1qYGSNnQ](http://pan.baidu.com/s/1qYGSNnQ)<br>密码:yzxk|2分之一強|[]()<br>密码:
 |10.13|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |10.13|美食好简单|[http://pan.baidu.com/s/1caHOy6](http://pan.baidu.com/s/1caHOy6)<br>密码:pc19|国光帮帮忙|[]()<br>密码:
-|10.13|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
+|10.13|爱玩客|[]()<br>密码:|医师好辣|[http://pan.baidu.com/s/1hrY3Nms](http://pan.baidu.com/s/1hrY3Nms)<br>密码:8hq0
 |10.13|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.13|穿越康熙|[http://pan.baidu.com/s/1o8wEcVg](http://pan.baidu.com/s/1o8wEcVg)<br>密码:r3e0
 |10.12|综艺大热门|[http://pan.baidu.com/s/1dE2fMPN](http://pan.baidu.com/s/1dE2fMPN)<br>密码:8pxs|小明星大跟班|[http://pan.baidu.com/s/1c2Jtds8](http://pan.baidu.com/s/1c2Jtds8)<br>密码:bd2g
