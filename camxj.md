@@ -5,7 +5,9 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
-|2016/10/01|#116 韓流star流行時尚|来宾|[点击播放](http://www.bilibili.com/video/av6525232/)|[网盘下载](http://xz.twzy.tw)
+|2016/10/16|換季保養宅美容神器|来宾|[点击播放](http://www.acfun.tv/v/ac3185943)|[网盘下载](http://xz.twzy.tw)
+|2016/10/15|全民都在瘋的手遊時尚|来宾|[点击播放](http://www.acfun.tv/v/ac3185937)|[网盘下载](http://xz.twzy.tw)
+|2016/10/01|116 韓流star流行時尚|来宾|[点击播放](http://www.bilibili.com/video/av6525232/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/24|115集 男神養成術|来宾|[点击播放](http://www.bilibili.com/video/av6420791/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/10|114集 南投好好玩特別企劃|来宾|[点击播放](http://www.bilibili.com/video/av6342690/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/04|113集 一起來當時尚生活好野人|来宾|[点击播放](http://www.bilibili.com/video/av6327288/)|[网盘下载](http://xz.twzy.tw)
