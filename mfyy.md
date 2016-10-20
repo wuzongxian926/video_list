@@ -5,7 +5,10 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/18|新陈代谢好 身体无负担|梁佑南,林国基,李洛洋,余朱青(营养师)|[点击播放](http://www.acfun.tv/v/ac3189730)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/10/17|超越现在的自己 美丽无极限|韦汝,张怀媗,简慧琦(营养师)|[点击播放](http://www.acfun.tv/v/ac3189748)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/14|骨本保健要注意 小心骨鬆找上你|劉怡里、向娃|[点击播放](http://www.acfun.tv/v/ac3182197)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
+|2016/10/12|天然料理锅 胶原蛋百元蹄汤|李洛洋,Emily,蔡万利|[点击播放](http://www.acfun.tv/v/ac3189744)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/10|北海岸 艺术之旅|林国基|[点击播放](http://www.acfun.tv/v/ac3167820)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/06|有效提升專注力 工作加倍有效率|向娃、Ice Man、蕭順基|[点击播放](http://www.acfun.tv/v/ac3160177)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/04|美鳳上菜 羅宋湯|Sam、余朱青|[点击播放](http://www.acfun.tv/v/ac3157410)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)

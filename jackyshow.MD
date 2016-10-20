@@ -5,6 +5,10 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第51集|公關男現身說該具被哪些技能！ 吳宗憲 Jacky|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3188991)|[网盘下载](http://xz.twzy.tw)
+|第48集|男扮女？女扮男？傻傻分不清！吳宗憲|于美人 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189037)|[网盘下载](http://xz.twzy.tw)
+|第47集|成為泡沫紅茶辣妹的資格！吳宗憲|NONO 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3188812)|[网盘下载](http://xz.twzy.tw)
+|第45集|你想跟外國人談戀愛嗎？吳宗憲|庹宗康 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3188994)|[网盘下载](http://xz.twzy.tw)
 |第40集|檳榔西施到底有錯嗎？吳宗憲 Jacky|于美人 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186650)|[网盘下载](http://xz.twzy.tw)
 |第39集|世界末日來臨，你想做的第一件事是什麼？吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186722)|[网盘下载](http://xz.twzy.tw)
 |第38集|同性戀！你是否接受呢？吳宗憲 Jacky|丁柔安 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186655)|[网盘下载](http://xz.twzy.tw)

@@ -5,6 +5,10 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第37集|麻將一路發，把各各藝人弄得滿身白！吳宗憲|小甜甜 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189282)|[网盘下载](http://xz.twzy.tw)
+|第31集|除夕特別節目就是玩很大！吳宗憲|柯以柔 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189738)|[网盘下载](http://xz.twzy.tw)
+|第29集|短腿納豆，慘摔竹輪橋！吳宗憲|納豆 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189313)|[网盘下载](http://xz.twzy.tw)
+|第28集|電音教父羅百吉，遭魔王很洗臉！吳宗憲|羅百吉 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189312)|[网盘下载](http://xz.twzy.tw)
 |第26集|新關卡報到，肥皂害慘所有人了！吳宗憲|Darren 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186870)|[网盘下载](http://xz.twzy.tw)
 |第25集|馬國賢跌破眾人眼鏡，闖關成功還獲得機車？！|馬國賢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150649)|[网盘下载](http://xz.twzy.tw)
 |第24集|關卡勁量橋大改版，闖關者慘慘落敗？！|吳玟萱 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_2)|[网盘下载](http://xz.twzy.tw)
