@@ -5,6 +5,11 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第40集|檳榔西施到底有錯嗎？吳宗憲 Jacky|于美人 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186650)|[网盘下载](http://xz.twzy.tw)
+|第39集|世界末日來臨，你想做的第一件事是什麼？吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186722)|[网盘下载](http://xz.twzy.tw)
+|第38集|同性戀！你是否接受呢？吳宗憲 Jacky|丁柔安 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186655)|[网盘下载](http://xz.twzy.tw)
+|第37集|牛郎現場為你示範，讓人帶出場秘訣！吳宗憲|比莉 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186718)|[网盘下载](http://xz.twzy.tw)
+|第36集|開鎖並不適小偷的專利，警察也會！吳宗憲|小鐘 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186659)|[网盘下载](http://xz.twzy.tw)
 |第35集|呼風喚雨的角色，就是歌神張學友！吳宗憲 Jacky Show EP35|張學友 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150432)|[网盘下载](http://xz.twzy.tw)
 |第34集|AcFun黑社會真的這麼狠心嗎？ Jacky|鈕承澤 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3114554)|[网盘下载](http://xz.twzy.tw)
 |第33集|AcFun網路世界是虛幻還是人性是虛幻呢_!|康康 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3115743)|[网盘下载](http://xz.twzy.tw)

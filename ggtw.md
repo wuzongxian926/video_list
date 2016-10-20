@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/16|恆春 帶著寵物享受南國艷陽天|来宾|[点击播放](http://www.acfun.tv/v/ac3187598)|[网盘下载](http://xz.twzy.tw)
 |2016/10/02|Ep225 苗栗 作客山線新玩法|来宾|[点击播放](http://www.acfun.tv/v/ac3155192)|[网盘下载](http://xz.twzy.tw)
 |2016/9/25|Ep224 南投竹山 探訪前山第一城|来宾|[点击播放](http://www.bilibili.com/video/av6453071/)|[网盘下载](http://xz.twzy.tw)
 |2016/9/18|Ep223 花蓮 深呼吸|来宾|[点击播放](http://www.bilibili.com/video/av6357638/)|[网盘下载](http://xz.twzy.tw)

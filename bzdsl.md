@@ -5,8 +5,11 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第26集|新關卡報到，肥皂害慘所有人了！吳宗憲|Darren 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186870)|[网盘下载](http://xz.twzy.tw)
 |第25集|馬國賢跌破眾人眼鏡，闖關成功還獲得機車？！|馬國賢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150649)|[网盘下载](http://xz.twzy.tw)
 |第24集|關卡勁量橋大改版，闖關者慘慘落敗？！|吳玟萱 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_2)|[网盘下载](http://xz.twzy.tw)
+|第23集|杜詩梅挑戰魔王迷宮，慘遭魔王毒打！？吳宗憲|小鬼 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186856)|[网盘下载](http://xz.twzy.tw)
+|第22集|脫臼王Junior，一隻手輕鬆過關香菇池！吳宗憲|Junior 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186888)|[网盘下载](http://xz.twzy.tw)
 |第21集|白雲闖關私帶武器，魔王是否安然逃過一劫？！|白雲 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574)|[网盘下载](http://xz.twzy.tw)
 |第20集|AcFun外國人來挑戰各關，居然輕鬆過關？！ |Junior 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116023)|[网盘下载](http://xz.twzy.tw)
 |第19集|AcFun小鐘欣賞美女房思瑜，錄影現場大告白！|房思瑜 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3116137)|[网盘下载](http://xz.twzy.tw)
