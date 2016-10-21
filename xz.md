@@ -42,11 +42,11 @@
 |10.18|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.18|穿越康熙|[http://pan.baidu.com/s/1jHAJmYU](http://pan.baidu.com/s/1jHAJmYU)<br>密码:tnxk|流行新势力|[]()<br>密码:
 |10.17|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1slu6h8T](http://pan.baidu.com/s/1slu6h8T)<br>密码:06g8
-|10.17|小燕之夜|[]()<br>密码:|18岁不睡|[]()<br>密码:
-|10.17|型男大主厨|[http://pan.baidu.com/s/1mi4PLBa](http://pan.baidu.com/s/1mi4PLBa)<br>密码:wpfr|女人我最大|[]()<br>密码:
-|10.17|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
+|10.17|小燕之夜|[]()<br>密码:|18岁不睡|[http://pan.baidu.com/s/1c9nYkI](http://pan.baidu.com/s/1c9nYkI)<br>密码:dmjl
+|10.17|型男大主厨|[http://pan.baidu.com/s/1mi4PLBa](http://pan.baidu.com/s/1mi4PLBa)<br>密码:wpfr|女人我最大|[http://pan.baidu.com/s/1dEFDmBR](http://pan.baidu.com/s/1dEFDmBR)<br>密码:lpxn
+|10.17|上班这党事|[http://pan.baidu.com/s/1nuUVSTj](http://pan.baidu.com/s/1nuUVSTj)<br>密码:6dpp|2分之一強|[]()<br>密码:
 |10.17|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1mi4PLLQ](http://pan.baidu.com/s/1mi4PLLQ)<br>密码:kn6s
-|10.17|美食好简单|[http://pan.baidu.com/s/1pKHuDnX](http://pan.baidu.com/s/1pKHuDnX)<br>密码:5dzq|国光帮帮忙|[]()<br>密码:
+|10.17|美食好简单|[http://pan.baidu.com/s/1pKHuDnX](http://pan.baidu.com/s/1pKHuDnX)<br>密码:5dzq|国光帮帮忙|[http://pan.baidu.com/s/1gfmdi1d](http://pan.baidu.com/s/1gfmdi1d)<br>密码:ebic
 |10.17|爱玩客|[http://pan.baidu.com/s/1gfLUXrX](http://pan.baidu.com/s/1gfLUXrX)<br>密码:sb6v|医师好辣|[]()<br>密码:
 |10.17|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.17|穿越康熙|[http://pan.baidu.com/s/1bDbyqU](http://pan.baidu.com/s/1bDbyqU)<br>密码:se1z

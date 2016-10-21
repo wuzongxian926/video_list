@@ -5,7 +5,15 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第61集|誰會是陳小春第一號女朋友呢？吳宗憲|陳小春 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191472)|[网盘下载](http://xz.twzy.tw)
+|第60集|外國人的差別在哪裡，今夜告訴你！吳宗憲|康康 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191463)|[网盘下载](http://xz.twzy.tw)
+|第59集|女女戀正夯，勇敢說出同志愛！吳宗憲|謝麗金 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191316)|[网盘下载](http://xz.twzy.tw)
+|第58集|雖然_胖_但也是有美女的！吳宗憲|小鐘 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191470)|[网盘下载](http://xz.twzy.tw)
+|第56集|窩包公主的定義大解析！吳宗憲|陳為民 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191792)|[网盘下载](http://xz.twzy.tw)
+|第55集|女神舒淇的笑點被打開，笑到停不下來了！？ 吳宗憲|舒淇 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191387)|[网盘下载](http://xz.twzy.tw)
+|第54集|cosplay大秘辛大公開！吳宗憲|小鐘 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3190839)|[网盘下载](http://xz.twzy.tw)
 |第51集|公關男現身說該具被哪些技能！ 吳宗憲 Jacky|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3188991)|[网盘下载](http://xz.twzy.tw)
+|第49集|九九神功可以加強性功能？吳宗憲|NONO 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191361)|[网盘下载](http://xz.twzy.tw)
 |第48集|男扮女？女扮男？傻傻分不清！吳宗憲|于美人 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189037)|[网盘下载](http://xz.twzy.tw)
 |第47集|成為泡沫紅茶辣妹的資格！吳宗憲|NONO 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3188812)|[网盘下载](http://xz.twzy.tw)
 |第45集|你想跟外國人談戀愛嗎？吳宗憲|庹宗康 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3188994)|[网盘下载](http://xz.twzy.tw)

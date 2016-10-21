@@ -5,10 +5,21 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第48集|瘋狂地鼠總是讓人暈頭轉向！吳宗憲|小甜甜 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191013)|[网盘下载](http://xz.twzy.tw)
+|第47集|丁寧過關了，卻慘遭逞罰！？馬國畢 吳宗憲|馬國畢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191041)|[网盘下载](http://xz.twzy.tw)
+|第46集|NONO人緣不好？慘遭眾人砸派潑水？吳宗憲|馬國畢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191015)|[网盘下载](http://xz.twzy.tw)
+|第45集|新關卡瘋狂打地鼠，各各都暈頭轉向！吳宗憲|宋新妮 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191496)|[网盘下载](http://xz.twzy.tw)
+|第44集|小鬼不只體力好，頭腦聰明眼力又好！吳宗憲|小鬼 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191537)|[网盘下载](http://xz.twzy.tw)
+|第43集|王瞳指定挑人玩滾滾樂，能挑戰成功嗎？吳宗憲|小甜甜 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191518)|[网盘下载](http://xz.twzy.tw)
+|第42集|吳宗憲和小潘潘親自下場示範，讓人臉紅心跳！吳宗憲|瑪格麗特 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191692)|[网盘下载](http://xz.twzy.tw)
+|第41集|全新單元全新玩法全新藝人讓你有全新感受！吳宗憲|小鬼 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191517)|[网盘下载](http://xz.twzy.tw)
+|第40集|敬業的主持人小潘潘，每一關都親自下場闖關！吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191497)|[网盘下载](http://xz.twzy.tw)
+|第39集|拚福牌特高竿換新玩法，大家眼睛有福了！吳宗憲|宋新妮 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191902)|[网盘下载](http://xz.twzy.tw)
 |第37集|麻將一路發，把各各藝人弄得滿身白！吳宗憲|小甜甜 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189282)|[网盘下载](http://xz.twzy.tw)
 |第31集|除夕特別節目就是玩很大！吳宗憲|柯以柔 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189738)|[网盘下载](http://xz.twzy.tw)
 |第29集|短腿納豆，慘摔竹輪橋！吳宗憲|納豆 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189313)|[网盘下载](http://xz.twzy.tw)
 |第28集|電音教父羅百吉，遭魔王很洗臉！吳宗憲|羅百吉 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3189312)|[网盘下载](http://xz.twzy.tw)
+|第27集|小天使韋汝來闖關，慘遭魔王狠心丟下水！吳宗憲|韋汝 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191542)|[网盘下载](http://xz.twzy.tw)
 |第26集|新關卡報到，肥皂害慘所有人了！吳宗憲|Darren 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3186870)|[网盘下载](http://xz.twzy.tw)
 |第25集|馬國賢跌破眾人眼鏡，闖關成功還獲得機車？！|馬國賢 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3150649)|[网盘下载](http://xz.twzy.tw)
 |第24集|關卡勁量橋大改版，闖關者慘慘落敗？！|吳玟萱 吳宗憲|[点击播放](http://www.aixifan.com/v/ac3109574_2)|[网盘下载](http://xz.twzy.tw)
