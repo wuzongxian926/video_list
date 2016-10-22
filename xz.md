@@ -23,7 +23,7 @@
 |全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
 |全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
 |全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
-|10.20|综艺大热门|[http://pan.baidu.com/s/1nuEaY8L](http://pan.baidu.com/s/1nuEaY8L)<br>密码:zqy9|小明星大跟班|[]()<br>密码:
+|10.20|综艺大热门|[http://pan.baidu.com/s/1nuEaY8L](http://pan.baidu.com/s/1nuEaY8L)<br>密码:zqy9|小明星大跟班|[http://pan.baidu.com/s/1nuOQvWH](http://pan.baidu.com/s/1nuOQvWH)<br>密码:tbds
 |10.20|小燕之夜|[]()<br>密码:|18岁不睡|[]()<br>密码:
 |10.20|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |10.20|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
@@ -32,8 +32,8 @@
 |10.20|爱玩客|[http://pan.baidu.com/s/1kUF0WU7](http://pan.baidu.com/s/1kUF0WU7)<br>密码:q7os|医师好辣|[]()<br>密码:
 |10.20|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.20|穿越康熙|[http://pan.baidu.com/s/1pK9TkiZ](http://pan.baidu.com/s/1pK9TkiZ)<br>密码:dqxw
-|10.19|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1pLAjvPh](http://pan.baidu.com/s/1pLAjvPh)<br>密码:1hdg
-|10.19|小燕之夜|[]()<br>密码:|18岁不睡|[]()<br>密码:
+|10.19|综艺大热门|[http://pan.baidu.com/s/1c1M0PBq](http://pan.baidu.com/s/1c1M0PBq)<br>密码:twbp|小明星大跟班|[http://pan.baidu.com/s/1pLAjvPh](http://pan.baidu.com/s/1pLAjvPh)<br>密码:1hdg
+|10.19|小燕之夜|[http://pan.baidu.com/s/1i50mn45](http://pan.baidu.com/s/1i50mn45)<br>密码:c7hx|18岁不睡|[]()<br>密码:
 |10.19|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |10.19|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
 |10.19|娱乐百分百|[]()<br>密码:|美凤有约|[http://pan.baidu.com/s/1i5fT1ad](http://pan.baidu.com/s/1i5fT1ad)<br>密码:q1pz
@@ -41,7 +41,7 @@
 |10.19|爱玩客|[http://pan.baidu.com/s/1jHJ6Nm2](http://pan.baidu.com/s/1jHJ6Nm2)<br>密码:8o5l|医师好辣|[]()<br>密码:
 |10.19|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.19|穿越康熙|[http://pan.baidu.com/s/1eSwoBzs](http://pan.baidu.com/s/1eSwoBzs)<br>密码:p1v3
-|10.18|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1i4ChmHf](http://pan.baidu.com/s/1i4ChmHf)<br>密码:4ud4
+|10.18|综艺大热门|[http://pan.baidu.com/s/1mh9tuVQ](http://pan.baidu.com/s/1mh9tuVQ)<br>密码:s6ik|小明星大跟班|[http://pan.baidu.com/s/1i4ChmHf](http://pan.baidu.com/s/1i4ChmHf)<br>密码:4ud4
 |10.18|小燕之夜|[http://pan.baidu.com/s/1sl4FD3R](http://pan.baidu.com/s/1sl4FD3R)<br>密码:voxn|18岁不睡|[http://pan.baidu.com/s/1kVuc41D](http://pan.baidu.com/s/1kVuc41D)<br>密码:zlvs
 |10.18|型男大主厨|[http://pan.baidu.com/s/1geNaGi3](http://pan.baidu.com/s/1geNaGi3)<br>密码:d6u4|女人我最大|[]()<br>密码:
 |10.18|上班这党事|[http://pan.baidu.com/s/1dEQ27JF](http://pan.baidu.com/s/1dEQ27JF)<br>密码:40e2|2分之一強|[]()<br>密码:
@@ -50,7 +50,7 @@
 |10.18|爱玩客|[http://pan.baidu.com/s/1nvhhjJj](http://pan.baidu.com/s/1nvhhjJj)<br>密码:v16u|医师好辣|[http://pan.baidu.com/s/1i50mm13](http://pan.baidu.com/s/1i50mm13)<br>密码:t9ip
 |10.18|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.18|穿越康熙|[http://pan.baidu.com/s/1jHAJmYU](http://pan.baidu.com/s/1jHAJmYU)<br>密码:tnxk|流行新势力|[]()<br>密码:
-|10.17|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1slu6h8T](http://pan.baidu.com/s/1slu6h8T)<br>密码:06g8
+|10.17|综艺大热门|[http://pan.baidu.com/s/1i5LkZkx](http://pan.baidu.com/s/1i5LkZkx)<br>密码:iyzs|小明星大跟班|[http://pan.baidu.com/s/1slu6h8T](http://pan.baidu.com/s/1slu6h8T)<br>密码:06g8
 |10.17|小燕之夜|[http://pan.baidu.com/s/1dFt8MI1](http://pan.baidu.com/s/1dFt8MI1)<br>密码:nu02|18岁不睡|[http://pan.baidu.com/s/1c9nYkI](http://pan.baidu.com/s/1c9nYkI)<br>密码:dmjl
 |10.17|型男大主厨|[http://pan.baidu.com/s/1mi4PLBa](http://pan.baidu.com/s/1mi4PLBa)<br>密码:wpfr|女人我最大|[http://pan.baidu.com/s/1dEFDmBR](http://pan.baidu.com/s/1dEFDmBR)<br>密码:lpxn
 |10.17|上班这党事|[http://pan.baidu.com/s/1nuUVSTj](http://pan.baidu.com/s/1nuUVSTj)<br>密码:6dpp|2分之一強|[]()<br>密码:
