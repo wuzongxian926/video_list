@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第67集|脫衣舞孃的辛酸史誰能了解！吳宗憲|丁寧 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3194640)|[网盘下载](http://xz.twzy.tw)
+|第62集|酒店公關女是掛羊頭賣狗肉嗎？吳宗憲|李明依 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3194631)|[网盘下载](http://xz.twzy.tw)
 |第61集|誰會是陳小春第一號女朋友呢？吳宗憲|陳小春 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191472)|[网盘下载](http://xz.twzy.tw)
 |第60集|外國人的差別在哪裡，今夜告訴你！吳宗憲|康康 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191463)|[网盘下载](http://xz.twzy.tw)
 |第59集|女女戀正夯，勇敢說出同志愛！吳宗憲|謝麗金 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191316)|[网盘下载](http://xz.twzy.tw)

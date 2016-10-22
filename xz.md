@@ -37,7 +37,7 @@
 |10.18|型男大主厨|[http://pan.baidu.com/s/1geNaGi3](http://pan.baidu.com/s/1geNaGi3)<br>密码:d6u4|女人我最大|[]()<br>密码:
 |10.18|上班这党事|[http://pan.baidu.com/s/1dEQ27JF](http://pan.baidu.com/s/1dEQ27JF)<br>密码:40e2|2分之一強|[]()<br>密码:
 |10.18|娱乐百分百|[http://pan.baidu.com/s/1mh9ttRq](http://pan.baidu.com/s/1mh9ttRq)<br>密码:xtxn|美凤有约|[http://pan.baidu.com/s/1jIJMUvs](http://pan.baidu.com/s/1jIJMUvs)<br>密码:l1am
-|10.18|美食好简单|[http://pan.baidu.com/s/1c27hSI0](http://pan.baidu.com/s/1c27hSI0)<br>密码:pdt3|国光帮帮忙|[]()<br>密码:
+|10.18|美食好简单|[http://pan.baidu.com/s/1c27hSI0](http://pan.baidu.com/s/1c27hSI0)<br>密码:pdt3|国光帮帮忙|[http://pan.baidu.com/s/1c29PORY](http://pan.baidu.com/s/1c29PORY)<br>密码:5t7u
 |10.18|爱玩客|[http://pan.baidu.com/s/1nvhhjJj](http://pan.baidu.com/s/1nvhhjJj)<br>密码:v16u|医师好辣|[http://pan.baidu.com/s/1i50mm13](http://pan.baidu.com/s/1i50mm13)<br>密码:t9ip
 |10.18|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
 |10.18|穿越康熙|[http://pan.baidu.com/s/1jHAJmYU](http://pan.baidu.com/s/1jHAJmYU)<br>密码:tnxk|流行新势力|[]()<br>密码:
@@ -48,7 +48,7 @@
 |10.17|娱乐百分百|[http://pan.baidu.com/s/1eSLrhbs](http://pan.baidu.com/s/1eSLrhbs)<br>密码:j5ff|美凤有约|[http://pan.baidu.com/s/1mi4PLLQ](http://pan.baidu.com/s/1mi4PLLQ)<br>密码:kn6s
 |10.17|美食好简单|[http://pan.baidu.com/s/1pKHuDnX](http://pan.baidu.com/s/1pKHuDnX)<br>密码:5dzq|国光帮帮忙|[http://pan.baidu.com/s/1gfmdi1d](http://pan.baidu.com/s/1gfmdi1d)<br>密码:ebic
 |10.17|爱玩客|[http://pan.baidu.com/s/1gfLUXrX](http://pan.baidu.com/s/1gfLUXrX)<br>密码:sb6v|医师好辣|[http://pan.baidu.com/s/1pKDWSUf](http://pan.baidu.com/s/1pKDWSUf)<br>密码:g0rt
-|10.17|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
+|10.17|食尚玩家|[http://pan.baidu.com/s/1i5Cx5R3](http://pan.baidu.com/s/1i5Cx5R3)<br>密码:bikm|请你跟我这样过|[http://pan.baidu.com/s/1cxcGBO](http://pan.baidu.com/s/1cxcGBO)<br>密码:megx
 |10.17|穿越康熙|[http://pan.baidu.com/s/1bDbyqU](http://pan.baidu.com/s/1bDbyqU)<br>密码:se1z
 |10.16|名模出任务|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1pL2bNg3](http://pan.baidu.com/s/1pL2bNg3)<br>密码:8e5t
 |10.16|综艺大集合|[http://pan.baidu.com/s/1c14jRVU](http://pan.baidu.com/s/1c14jRVU)<br>密码:nal2|台湾名人堂|[]()<br>密码:
