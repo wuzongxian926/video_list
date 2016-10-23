@@ -5,6 +5,11 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第72集|給你一個極速快感的夜晚！ 吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3200388)|[网盘下载](http://xz.twzy.tw)
+|第71集|借種生子流程大公開！吳宗憲|比莉 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3200252)|[网盘下载](http://xz.twzy.tw)
+|第70集|除夕夜給你，愛你一萬年的劉德華！吳宗憲|劉德華 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3200551)|[网盘下载](http://xz.twzy.tw)
+|第69集|變男變女變變變！吳宗憲|小鐘 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3199853)|[网盘下载](http://xz.twzy.tw)
+|第68集|另類美女大集合，你猜得出他是做什麼的嗎？吳宗憲|歐陽龍 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3200399)|[网盘下载](http://xz.twzy.tw)
 |第67集|脫衣舞孃的辛酸史誰能了解！吳宗憲|丁寧 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3194640)|[网盘下载](http://xz.twzy.tw)
 |第62集|酒店公關女是掛羊頭賣狗肉嗎？吳宗憲|李明依 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3194631)|[网盘下载](http://xz.twzy.tw)
 |第61集|誰會是陳小春第一號女朋友呢？吳宗憲|陳小春 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191472)|[网盘下载](http://xz.twzy.tw)

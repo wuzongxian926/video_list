@@ -6,6 +6,8 @@
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
 |第56集|麻辣一家親槓上百戰大勝利，誰能獲勝呢_吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3194901)|[网盘下载](http://xz.twzy.tw)
+|第55集|白雲和陳為民兩位到底有甚麼深仇大恨呢？吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3199945)|[网盘下载](http://xz.twzy.tw)
+|第54集|石馬克大戰魔王，真丟臉關卡，會戰勝還是慘慘落敗！吳宗憲|NONO 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3200623)|[网盘下载](http://xz.twzy.tw)
 |第51集|穿來穿去關卡內容，讓女生臉紅心跳不敢嘗試！？吳宗憲|汪建銘 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3195129)|[网盘下载](http://xz.twzy.tw)
 |第49集|滾滾樂總是讓人臉紅心跳！吳宗憲|韋汝 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3194906)|[网盘下载](http://xz.twzy.tw)
 |第48集|瘋狂地鼠總是讓人暈頭轉向！吳宗憲|小甜甜 吳宗憲|[点击播放](http://www.acfun.tv/v/ac3191013)|[网盘下载](http://xz.twzy.tw)
