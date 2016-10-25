@@ -5,24 +5,7 @@
 
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
-|全集|综艺大热门|[http://pan.baidu.com/s/1c2K9CIG](http://pan.baidu.com/s/1c2K9CIG)<br>密码:kym9|小明星大跟班|[http://pan.baidu.com/s/1slvgEGd](http://pan.baidu.com/s/1slvgEGd)<br>密码:d7hr
-|全集|综艺玩很大|[http://pan.baidu.com/s/1jHVC1KU](http://pan.baidu.com/s/1jHVC1KU)<br>密码:aqb9|国光帮帮忙|[http://pan.baidu.com/s/1kUGHvZh](http://pan.baidu.com/s/1kUGHvZh)<br>密码:j802
-|全集|型男大主厨|[http://pan.baidu.com/s/1slBvExR](http://pan.baidu.com/s/1slBvExR)<br>密码:gsuk|天才冲冲冲|[http://pan.baidu.com/s/1dE2a00p](http://pan.baidu.com/s/1dE2a00p)<br>密码:byri
-|全集|大学生了没|[http://pan.baidu.com/s/1jH48eEi](http://pan.baidu.com/s/1jH48eEi)<br>密码:gb89|小燕之夜|[http://pan.baidu.com/s/1i4MR76X](http://pan.baidu.com/s/1i4MR76X)<br>密码:s5bl
-|全集|女人我最大|[http://pan.baidu.com/s/1pL3YkzT](http://pan.baidu.com/s/1pL3YkzT)<br>密码:lxdi|上班这党事|[http://pan.baidu.com/s/1hsqFssk](http://pan.baidu.com/s/1hsqFssk)<br>密码:cnwf
-|全集|娱乐百分百|[http://pan.baidu.com/s/1qXYieD2](http://pan.baidu.com/s/1qXYieD2)<br>密码:wxn5|医师好辣|[http://pan.baidu.com/s/1i49tTdj](http://pan.baidu.com/s/1i49tTdj)<br>密码:ntnr
-|全集|爱玩客|[http://pan.baidu.com/s/1qYzm1S4](http://pan.baidu.com/s/1qYzm1S4)<br>密码:c8nk|食尚玩家|[http://pan.baidu.com/s/1dEElICh](http://pan.baidu.com/s/1dEElICh)<br>密码:qyr6
-|全集|美凤有约|[http://pan.baidu.com/s/1cql8sQ](http://pan.baidu.com/s/1cql8sQ)<br>密码:7nl7|美食好简单|[http://pan.baidu.com/s/1mhV8ynu](http://pan.baidu.com/s/1mhV8ynu)<br>密码:0u6y
-|全集|2分之一强|[http://pan.baidu.com/s/1i4ZcqR7](http://pan.baidu.com/s/1i4ZcqR7)<br>密码:760w|请你跟我这样过|[http://pan.baidu.com/s/1gf0kJcf](http://pan.baidu.com/s/1gf0kJcf)<br>密码:0dln
-|全集|穿越康熙|[http://pan.baidu.com/s/1gfsJmbL](http://pan.baidu.com/s/1gfsJmbL)<br>密码:9sry|名模出任务|[http://pan.baidu.com/s/1dECjRdZ](http://pan.baidu.com/s/1dECjRdZ)<br>密码:cuod
-|全集|全民一起来|[http://pan.baidu.com/s/1bLdzJo](http://pan.baidu.com/s/1bLdzJo)<br>密码:2d2w|综艺大集合|[http://pan.baidu.com/s/1mijL85i](http://pan.baidu.com/s/1mijL85i)<br>密码:86ci
-|全集|舞力全开|[http://pan.baidu.com/s/1hsx0QZa](http://pan.baidu.com/s/1hsx0QZa)<br>密码:2w8l|流行新势力|[http://pan.baidu.com/s/1jIjjDWU](http://pan.baidu.com/s/1jIjjDWU)<br>密码:oe5x
-|全集|超爱美小姐|[http://pan.baidu.com/s/1bp4wD9H](http://pan.baidu.com/s/1bp4wD9H)<br>密码:udcs|GOGO捷运|[http://pan.baidu.com/s/1i4VE4i5](http://pan.baidu.com/s/1i4VE4i5)<br>密码:cw51
-|全集|台湾名人堂|[http://pan.baidu.com/s/1geIRviV](http://pan.baidu.com/s/1geIRviV)<br>密码:fap7|没玩没了|[http://pan.baidu.com/s/1pLxTcUn](http://pan.baidu.com/s/1pLxTcUn)<br>密码:mg75
-|全集|超级夜总会|[http://pan.baidu.com/s/1bRjctS](http://pan.baidu.com/s/1bRjctS)<br>密码:atht|GoGoTaiwan|[http://pan.baidu.com/s/1gfrxrt5](http://pan.baidu.com/s/1gfrxrt5)<br>密码:nuvh
-|全集|私房话老实说|[http://pan.baidu.com/s/1i5PPfI9](http://pan.baidu.com/s/1i5PPfI9)<br>密码:qb2y|一字千金|[http://pan.baidu.com/s/1o8EP9HK](http://pan.baidu.com/s/1o8EP9HK)<br>密码:6x58
-|全集|正妹讚出來|[http://pan.baidu.com/s/1gftzjVX](http://pan.baidu.com/s/1gftzjVX)<br>密码:l9df|完全娱乐|[http://pan.baidu.com/s/1c27c4sK](http://pan.baidu.com/s/1c27c4sK)<br>密码:x97j
-|全集|大陆寻奇|[http://pan.baidu.com/s/1o8cpS3g](http://pan.baidu.com/s/1o8cpS3g)<br>密码:cwt8|
+|第二季|台湾综艺网盘|[http://pan.baidu.com/s/1bo2QiEb](http://pan.baidu.com/s/1bo2QiEb)<br>密码:xu7b|第一季|[http://pan.baidu.com/s/1qYm0TYG](http://pan.baidu.com/s/1qYm0TYG)<br>密码:dd5s
 |10.22|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
 |10.22|娱乐百分百|[]()<br>密码:|超爱美小姐|[]()<br>密码:
 |10.22|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
