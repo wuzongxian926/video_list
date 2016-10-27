@@ -70,7 +70,7 @@
 |10.13|娱乐百分百|[http://pan.baidu.com/s/1skQdZ57](http://pan.baidu.com/s/1skQdZ57)<br>密码:74vg|美凤有约|[]()<br>密码:
 |10.13|美食好简单|[http://pan.baidu.com/s/1caHOy6](http://pan.baidu.com/s/1caHOy6)<br>密码:pc19|国光帮帮忙|[]()<br>密码:
 |10.13|爱玩客|[]()<br>密码:|医师好辣|[http://pan.baidu.com/s/1hrY3Nms](http://pan.baidu.com/s/1hrY3Nms)<br>密码:8hq0
-|10.13|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
+|10.13|食尚玩家|[]()<br>密码:|请你跟我这样过|[http://pan.baidu.com/s/1miCX8d6](http://pan.baidu.com/s/1miCX8d6)<br>密码:ribr
 |10.13|穿越康熙|[http://pan.baidu.com/s/1o8wEcVg](http://pan.baidu.com/s/1o8wEcVg)<br>密码:r3e0
 |10.12|综艺大热门|[http://pan.baidu.com/s/1dE2fMPN](http://pan.baidu.com/s/1dE2fMPN)<br>密码:8pxs|小明星大跟班|[http://pan.baidu.com/s/1c2Jtds8](http://pan.baidu.com/s/1c2Jtds8)<br>密码:bd2g
 |10.12|小燕之夜|[http://pan.baidu.com/s/1qYm0Dly](http://pan.baidu.com/s/1qYm0Dly)<br>密码:ngq4|18岁不睡|[http://pan.baidu.com/s/1nvS4lRV](http://pan.baidu.com/s/1nvS4lRV)<br>密码:r6nm

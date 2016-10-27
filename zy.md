@@ -129,7 +129,7 @@
 |20161013|爱玩客|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161013|医师好辣|惊！医师治好病人纯属巧合？！|余皓然,张克帆,潘慧如|[播放](http://www.acfun.tv/v/ac3184188)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161013|食尚玩家|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161013|请你跟<br>我这样过|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161013|请你跟<br>我这样过|中醫瘦身？！效果超級好？！|林姿佑 小call|[播放](http://www.acfun.tv/v/ac3200925)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161013|穿越康熙|女模真的不好混？！|来宾|[播放](http://www.acfun.tv/v/ac3182886)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161012|综艺大热门|慎入！人气网美大素颜！你还热的哪位?|曾子余,林大晋,大恺,哈孝远,LALA<br>施菲亚,魏可人,蚂蚁,糖糖|[播放](http://www.acfun.tv/v/ac3178550)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161012|小明星大跟班|小明星告解室 父母迟来的道歉！！|小红莓&李妍憬,安迪&林吟蔚<br>吴沁玲&玛莉亚,Grace&曾子余|[播放](http://www.acfun.tv/v/ac3175226)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
