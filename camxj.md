@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/23|时尚主题日 说走就走的旅行|路嘉怡,刘容嘉,艾美|[点击播放](http://www.acfun.tv/v/ac3204337)|[网盘下载](http://xz.twzy.tw)
+|2016/10/22|特别企划 首尔时尚之旅|夏和熙,艾美|[播放](http://www.acfun.tv/v/ac3204339)|[网盘下载](http://xz.twzy.tw)
 |2016/10/16|換季保養宅美容神器|来宾|[点击播放](http://www.acfun.tv/v/ac3185943)|[网盘下载](http://xz.twzy.tw)
 |2016/10/15|全民都在瘋的手遊時尚|来宾|[点击播放](http://www.acfun.tv/v/ac3185937)|[网盘下载](http://xz.twzy.tw)
 |2016/10/01|116 韓流star流行時尚|来宾|[点击播放](http://www.bilibili.com/video/av6525232/)|[网盘下载](http://xz.twzy.tw)
