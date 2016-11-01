@@ -6,7 +6,7 @@
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
 |第二季|台湾综艺网盘|[http://pan.baidu.com/s/1bo2QiEb](http://pan.baidu.com/s/1bo2QiEb)<br>密码:xu7b|第一季|[http://pan.baidu.com/s/1qYm0TYG](http://pan.baidu.com/s/1qYm0TYG)<br>密码:dd5s
-|10.24|综艺大热门|[]()<br>密码:|小明星大跟班|[]()<br>密码:
+|10.24|综艺大热门|[http://pan.baidu.com/s/1c2JZQwC](http://pan.baidu.com/s/1c2JZQwC)<br>密码:1umm|小明星大跟班|[http://pan.baidu.com/s/1miDDTck](http://pan.baidu.com/s/1miDDTck)<br>密码:mwha
 |10.24|小燕之夜|[]()<br>密码:|18岁不睡|[]()<br>密码:
 |10.24|型男大主厨|[]()<br>密码:|女人我最大|[]()<br>密码:
 |10.24|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:
@@ -14,7 +14,7 @@
 |10.24|美食好简单|[]()<br>密码:|国光帮帮忙|[]()<br>密码:
 |10.24|爱玩客|[]()<br>密码:|医师好辣|[]()<br>密码:
 |10.24|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
-|10.24|穿越康熙|[]()<br>密码:|
+|10.24|穿越康熙|[http://pan.baidu.com/s/1dF9Oyyt](http://pan.baidu.com/s/1dF9Oyyt)<br>密码:ufa7
 |10.23|名模出任务|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1dFqR4m1](http://pan.baidu.com/s/1dFqR4m1)<br>密码:qphv
 |10.23|综艺大集合|[]()<br>密码:|台湾名人堂|[]()<br>密码:
 |10.23|没玩没了|[]()<br>密码:|GOGO捷运|[http://pan.baidu.com/s/1miLfyMc](http://pan.baidu.com/s/1miLfyMc)<br>密码:a458
@@ -22,7 +22,7 @@
 |10.22|综艺玩很大|[]()<br>密码:|天才冲冲冲|[]()<br>密码:
 |10.22|娱乐百分百|[]()<br>密码:|超爱美小姐|[http://pan.baidu.com/s/1c2BSrrM](http://pan.baidu.com/s/1c2BSrrM)<br>密码:8su9
 |10.22|舞力全开|[]()<br>密码:|全民一起来|[]()<br>密码:
-|10.22|名模出任务|[]()<br>密码:
+|10.22|名模出任务|[http://pan.baidu.com/s/1mhKjolM](http://pan.baidu.com/s/1mhKjolM)<br>密码:fg8l
 |10.21|小燕之夜|[http://pan.baidu.com/s/1i5dlFY9](http://pan.baidu.com/s/1i5dlFY9)<br>密码:r06c|穿越康熙|[]()<br>密码:
 |10.21|18岁不睡|[http://pan.baidu.com/s/1kUCdIp5](http://pan.baidu.com/s/1kUCdIp5)<br>密码:90ck|型男大主厨|[]()<br>密码:
 |10.21|女人我最大|[http://pan.baidu.com/s/1o7BrH6i](http://pan.baidu.com/s/1o7BrH6i)<br>密码:6j99|上班这党事|[http://pan.baidu.com/s/1dFFobCH](http://pan.baidu.com/s/1dFFobCH)<br>密码:tuvy
@@ -35,7 +35,7 @@
 |10.20|娱乐百分百|[]()<br>密码:|美凤有约|[]()<br>密码:
 |10.20|美食好简单|[http://pan.baidu.com/s/1jHMoIb0](http://pan.baidu.com/s/1jHMoIb0)<br>密码:dxaw|国光帮帮忙|[]()<br>密码:
 |10.20|爱玩客|[http://pan.baidu.com/s/1kUF0WU7](http://pan.baidu.com/s/1kUF0WU7)<br>密码:q7os|医师好辣|[http://pan.baidu.com/s/1bpNzjDP](http://pan.baidu.com/s/1bpNzjDP)<br>密码:kjfl
-|10.20|食尚玩家|[]()<br>密码:|请你跟我这样过|[]()<br>密码:
+|10.20|食尚玩家|[]()<br>密码:|请你跟我这样过|[http://pan.baidu.com/s/1bo2QA2F](http://pan.baidu.com/s/1bo2QA2F)<br>密码:krbj
 |10.20|穿越康熙|[http://pan.baidu.com/s/1pK9TkiZ](http://pan.baidu.com/s/1pK9TkiZ)<br>密码:dqxw
 |10.19|综艺大热门|[http://pan.baidu.com/s/1c1M0PBq](http://pan.baidu.com/s/1c1M0PBq)<br>密码:twbp|小明星大跟班|[http://pan.baidu.com/s/1pLAjvPh](http://pan.baidu.com/s/1pLAjvPh)<br>密码:1hdg
 |10.19|小燕之夜|[http://pan.baidu.com/s/1i50mn45](http://pan.baidu.com/s/1i50mn45)<br>密码:c7hx|18岁不睡|[]()<br>密码:

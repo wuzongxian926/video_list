@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/10/24|等录影聊是非！？揪出休息室八卦王！|余果栋,吕文婉,博焱,沈玉琳,圆圆,Paul,玛莉亚,黄沐妍|[点击播放](http://www.acfun.tv/v/ac3205660)|[网盘](http://xz.twzy.tw)
 |2016/10/20|抄袭大赛！谁能把MV原汁原味搬上台？|大根,阿虎,茵茵,夏语心,舒子晨,惟毅,安苡爱,嘻小瓜,杜苡瑄,黄沐妍,佑庭,大飞,张灏|[点击播放](http://www.acfun.tv/v/ac3195862)|[网盘](http://xz.twzy.tw)
 |2016/10/19|谁能比我狂！女团游戏大战开打！|Lamigirls,大宝,博焱,大根,阿虎|[点击播放](http://www.acfun.tv/v/ac3196214)|[网盘](http://xz.twzy.tw)
 |2016/10/18|欸！我已经不满你很久了！夫妻从未说出口的难听话？！（下）|侯昌明&曾雅兰,阿Ben&徐小可,Stanley&依依,阿布&Michelle,Paul&咪咪|[点击播放](http://www.acfun.tv/v/ac3196217)|[网盘](http://xz.twzy.tw)

@@ -4,8 +4,8 @@
 <div align = center><img src="https://github.com/wuzongxian926/video_list/blob/master/GIT.jpg?raw=true"  width="100%" height="100%" alt="宝岛购购购七月钜惠" /></div>
 日期|节目|主题|来宾|在线|下载|全集
 ----|----|----|----|----|----|----
-|20161024|综艺大热门|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161024|小明星大跟班|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161024|综艺大热门|等录影聊是非！？揪出休息室八卦王！|余果栋,吕文婉,博焱,沈玉琳,圆圆,Paul,玛莉亚,黄沐妍|[点击播放](http://www.acfun.tv/v/ac3205660)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161024|小明星大跟班|明星梦是否能成真？！小明星终极试镜大会！！|沈玉琳,孙协志,黄靖伦,舒子晨,陈大天|[点击播放](http://www.acfun.tv/v/ac3205019)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161024|小燕之夜|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161024|18岁不睡|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161024|型男大主厨|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -20,7 +20,7 @@
 |20161024|医师好辣|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161024|食尚玩家|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161024|请你跟<br>我这样过|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161024|穿越康熙|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161024|穿越康熙|經典壞女人的反差萌|来宾|[点击播放](http://www.acfun.tv/v/ac3204984)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|名模出任务|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|超爱美小姐|时尚主题日 说走就走的旅行|路嘉怡,刘容嘉,艾美|[点击播放](http://www.acfun.tv/v/ac3204337)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -35,7 +35,7 @@
 |20161022|舞力全开|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161022|全民一起来|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161022|娱乐百分百|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161022|名模出任务|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161022|名模出任务|你在说什么按摩版 & 踢罐子躲猫猫 & 看舞蹈猜食物|沈玉琳,蔡淑臻,李懿,陈志强,吴承璟,陈思璇,杨升达,IKEA,梅贤治,大恺|[播放](http://www.acfun.tv/v/ac3205715)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161021|小燕之夜|天啊！你看起来怎么越来越年轻！|Vicky,布兰妮,林奇葳,LuLu,夏和熙<br>谢宜芳,卢静怡|[播放](http://www.acfun.tv/v/ac3199925)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161021|18岁不睡|你下班 他们才上班！！这些越夜越美丽的工作！！|陈艾琳,班杰,斯亚|[播放](http://www.acfun.tv/v/ac3204329)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161021|型男大主厨|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
@@ -61,7 +61,7 @@
 |20161020|爱玩客|走入老台中 寻找在地好滋味|吴凤,大久保麻梨子|[播放](http://www.acfun.tv/v/ac3195894)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161020|医师好辣|误会大了！当心这些老化警讯？！|黄小柔,叶家妤,Julie|[播放](http://www.acfun.tv/v/ac3198329)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161020|食尚玩家|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161020|请你跟<br>我这样过|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161020|请你跟<br>我这样过|喝健康？！不喝心酸？！|甄莉,李亮瑾,杨晨熙,专家:彭温雅,刘怡里,洪素卿|[播放](http://www.acfun.tv/v/ac3204992)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161020|穿越康熙|信不信由你！|来宾|[播放](http://www.acfun.tv/v/ac3195956)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161019|综艺大热门|谁能比我狂！女团游戏大战开打！|Lamigirls,大宝,博焱,大根,阿虎|[播放](http://www.acfun.tv/v/ac3196214)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161019|小明星大跟班|能唱几秒各凭本事！！歌手宣传钟点战！！|梁一贞,No Name,刘明湘,高佳群,古小伟|[播放](http://www.acfun.tv/v/ac3193520)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
