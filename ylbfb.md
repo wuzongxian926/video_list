@@ -5,6 +5,8 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/21|粉Meeting|恺乐,威廉,宏正,晨翔,毛弟,宇宙,程予希|[播放](http://www.acfun.tv/v/ac3208240)|[网盘下载](http://xz.twzy.tw)
+|2016/10/20|粉Meeting|恺乐,威廉,杨丞琳|[播放](http://www.acfun.tv/v/ac3208238)|[网盘下载](http://xz.twzy.tw)
 |2016/10/19|百分百LIVE|小猪,毛弟,杨奇煜,卢学睿,鼓鼓|[点击播放](http://www.acfun.tv/v/ac3197828)|[网盘下载](http://xz.twzy.tw)
 |2016/10/18|百分百LIVE|恺乐,威廉,王诗安|[点击播放](http://www.acfun.tv/v/ac3194319)|[网盘下载](http://xz.twzy.tw)
 |2016/10/17|明星好麻吉|恺乐,毛弟,吴映洁,阿纬,小蛮|[点击播放](http://www.acfun.tv/v/ac3194325)|[网盘下载](http://xz.twzy.tw)
