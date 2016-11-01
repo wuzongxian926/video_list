@@ -26,7 +26,7 @@
 |20161023|综艺大集合|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|台湾名人堂|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|没玩没了|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161023|GOGO捷运|松山新店線-公館站 台電大樓站|来宾|[点击播放](http://www.acfun.tv/v/ac3204671)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161023|GOGO捷运|松山新店線-公館站-台電大樓站|来宾|[点击播放](http://www.acfun.tv/v/ac3204671)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|GoGoTaiwan|嘗試新鮮  挑戰體能 動一動多健康！|来宾|[点击播放](http://www.acfun.tv/v/ac3204450)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161023|后宫生还战|未更新|来宾|[点击播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161022|综艺玩很大|泰国 桂河（下） 命运好好玩|吴宗宪,Kid,邰智源,萝莉塔,Terry<br>任媛媛,梁以辰,LALA,阿虎|[播放](http://www.acfun.tv/v/ac3203647)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
