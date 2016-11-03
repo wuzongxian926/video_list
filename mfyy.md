@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|2016/10/27|唤醒胶原蛋白 由内而外全方面|Sam,Vicky,王政力,陈柏臣|[播放](http://www.acfun.tv/v/ac3213682)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/25|台湾之光 五日苗 肠胃不适Say拜拜|陈柏臣,蔡万利|[播放](http://www.acfun.tv/v/ac3210845)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/21|摆脱文明病 维持青春有活力|Julie,王灿,刘怡里(营养师)|[点击播放](http://www.acfun.tv/v/ac3198175)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
 |2016/10/19|台湾之光 一觉好眠非难事|纪宝如,甄莉,王政力(营养分子学专家),陈柏臣(家医科医师)|[点击播放](http://www.acfun.tv/v/ac3195355)|[网盘](http://xz.twzy.tw)|[网盘下载](http://xz.twzy.tw)
