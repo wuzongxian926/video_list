@@ -5,6 +5,7 @@
 
 日期|主题|来宾|在线|下载
 ----|----|----|----|----
+|第61集|冰火五重天讓人重天堂掉到地獄！吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3211571)|[网盘下载](http://xz.twzy.tw)
 |第60集|女生的力量是不容小覷！吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3207981)|[网盘下载](http://xz.twzy.tw)
 |第58集|Tony Chen成為眾人新攻擊對象，還沒答題就已經慘不人賭！|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3203531)|[网盘下载](http://xz.twzy.tw)
 |第57集|憲哥偏心小鐘的對象跟NONO的對象怎麼差這麼多！吳宗憲|吳宗憲|[点击播放](http://www.acfun.tv/v/ac3201120)|[网盘下载](http://xz.twzy.tw)
