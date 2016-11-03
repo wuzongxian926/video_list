@@ -28,7 +28,7 @@
 |20161025|型男大主厨|欧洲经典食材料理秀：法国奶油淡菜+酥炸春鸡佐温沙拉+老虎酱佐生蚝+百香辣猪柳+比利时番茄鸭肉球|陈随意,谢宜君,罗美玲,Terry,吴俊宏&真姨(俊宏阿姨),郭主义&女儿(铠蒂),主厨:阿基师,詹姆士,吴秉承,张秋永|[播放](http://www.acfun.tv/v/ac3207936)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|女人我最大|盘点日韩 大势女星的人气妆发|林立雯,韦汝,Christine,陈薇,佩洁,可青,吴依霖,Kevin|[播放](http://www.acfun.tv/v/ac3211483)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|上班这党事|姐妹们的聚会 男人可以识相一点吗？|余皓然,韦汝,杨皓如,林萃芬|[播放](http://www.acfun.tv/v/ac3211525)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161025|2分之一強|男人明明犯了错！时候还当大白目？！|Julie,苏晏霈,杨皓如,哈孝远|[播放](http://www.acfun.tv/v/ac3211672)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161025|2分之一強|男人明明犯了错！时候还当大白目？|Julie,苏晏霈,杨皓如,哈孝远|[播放](http://www.acfun.tv/v/ac3211672)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|娱乐百分百|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|美凤有约|台湾之光 五日苗 肠胃不适Say拜拜|陈柏臣,蔡万利|[播放](http://www.acfun.tv/v/ac3210845)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|美食好简单|家常牛柳柴把 & 芫爆鲜干贝|温国智|[播放](http://www.acfun.tv/v/ac3211107)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
