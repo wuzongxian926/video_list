@@ -36,7 +36,7 @@
 |20161025|爱玩客|赌上性命推荐的绝品美食|詹姆士,韦汝|[播放](http://www.acfun.tv/v/ac3207946)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|医师好辣|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|食尚玩家|出外去花莲肚子靠朋友|颜永烈,曾子余,张立东|[播放](http://www.acfun.tv/v/ac3211572)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
-|20161025|请你跟<br>我这样过|孩子生病？！妈妈也要当心？！|叶家妤,薇琪,依依,专家:黄瑽宁,洪素卿|[播放](http://www.acfun.tv/v/ac3211502)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
+|20161025|请你跟<br>我这样过|孩子生病？！妈妈也要当心？|叶家妤,薇琪,依依,专家:黄瑽宁,洪素卿|[播放](http://www.acfun.tv/v/ac3211502)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|穿越康熙|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161025|流行新势力|未更新|来宾|[播放]|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
 |20161024|综艺大热门|等录影聊是非！？揪出休息室八卦王！|余果栋,吕文婉,博焱,沈玉琳,圆圆,Paul,玛莉亚,黄沐妍|[点击播放](http://www.acfun.tv/v/ac3205660)|[网盘](http://xz.twzy.tw)|[全集](http://qj.twzy.tw)
