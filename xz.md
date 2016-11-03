@@ -6,12 +6,13 @@
 日期|节目|网盘地址|节目|网盘地址
 ----|----|----|----|----|----
 |第二季|台湾综艺网盘|[http://pan.baidu.com/s/1bo2QiEb](http://pan.baidu.com/s/1bo2QiEb)<br>密码:xu7b|第一季|[http://pan.baidu.com/s/1qYm0TYG](http://pan.baidu.com/s/1qYm0TYG)<br>密码:dd5s
+|10.28|爱玩客|[http://pan.baidu.com/s/1pLD7S9P](http://pan.baidu.com/s/1pLD7S9P)<br>密码:bd84
 |10.28|小燕之夜|[]()<br>密码:|穿越康熙|[]()<br>密码:
 |10.28|18岁不睡|[]()<br>密码:|型男大主厨|[]()<br>密码:
 |10.28|女人我最大|[]()<br>密码:|上班这党事|[]()<br>密码:
 |10.28|2分之一強|[]()<br>密码:|娱乐百分百|[]()<br>密码:
-|10.28|美凤有约|[]()<br>密码:|美食好简单|[]()<br>密码:
-|10.27|综艺大热门|[]()<br>密码:|小明星大跟班|[http://pan.baidu.com/s/1slmzzcT](http://pan.baidu.com/s/1slmzzcT)<br>密码:nyfz
+|10.28|美凤有约|[http://pan.baidu.com/s/1jIa2xQA](http://pan.baidu.com/s/1jIa2xQA)<br>密码:pv14|美食好简单|[http://pan.baidu.com/s/1eSiIdua](http://pan.baidu.com/s/1eSiIdua)<br>密码:ah9g
+|10.27|综艺大热门|[http://pan.baidu.com/s/1qYCPPJQ](http://pan.baidu.com/s/1qYCPPJQ)<br>密码:ovvh|小明星大跟班|[http://pan.baidu.com/s/1slmzzcT](http://pan.baidu.com/s/1slmzzcT)<br>密码:nyfz
 |10.27|小燕之夜|[]()<br>密码:|18岁不睡|[]()<br>密码:
 |10.27|型男大主厨|[http://pan.baidu.com/s/1bpDqtv5](http://pan.baidu.com/s/1bpDqtv5)<br>密码:y01i|女人我最大|[]()<br>密码:
 |10.27|上班这党事|[]()<br>密码:|2分之一強|[]()<br>密码:

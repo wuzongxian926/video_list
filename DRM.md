@@ -8,6 +8,7 @@
 |2015年|综艺大热门高清全集（2015）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2015.md)|[网盘](http://xz.twzy.tw)
 |2014年|综艺大热门高清全集（2014）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2014.md)|[网盘](http://xz.twzy.tw)
 |2013年|综艺大热门高清全集（2013）|收藏台湾综艺节目无广告无水印高清原盘资源，请联系客服微信/QQ：[12347450](http://wpa.qq.com/msgrd?v=3&uin=12347450&site=qq&menu=yes)|[播放](https://github.com/wuzongxian926/video_list/blob/master/drm2013.md)|[网盘](http://xz.twzy.tw)
+|2016/10/27|我被骂的才惨！！当明星听过最难听的话是？|李懿,何嘉文,徐玮吟,曾治豪,卢学叡,大恺|[播放](http://www.acfun.tv/v/ac3215749)|[网盘](http://xz.twzy.tw)
 |2016/10/26|来台湾这么久真的懂？外国人中文能力PK赛！|马恺杰,田舞阳,杜力,梦多,凯莉,黄沐妍,夏宇童,嘻小瓜|[播放](http://www.acfun.tv/v/ac3211570)|[网盘](http://xz.twzy.tw)
 |2016/10/25|听声音想象他的样貌！是惊喜还是惊吓？！|隔壁老王,熊熊,森苓,小钟,哈雷大叔,林彦君,香蕉人,山猪|[播放](http://www.acfun.tv/v/ac3208231)|[网盘](http://xz.twzy.tw)
 |2016/10/24|等录影聊是非！？揪出休息室八卦王！|余果栋,吕文婉,博焱,沈玉琳,圆圆,Paul,玛莉亚,黄沐妍|[点击播放](http://www.acfun.tv/v/ac3205660)|[网盘](http://xz.twzy.tw)
